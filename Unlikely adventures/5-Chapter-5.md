@@ -53,11 +53,11 @@ Virgil perfect stare, with his bright deep blue eyes, followed an arc from Amir'
 
 Sam and Amir gave a cheeky smile, they had gained the implicit understanding of challenging each other without having to say a single word and with a swift flap both children took off to the sky following the intangible presence of their mentor.
 
+<br />
 
+<hr/>
 
--
-
-
+<br />
 
 From a hill away, four children observed the young travellers gushing through the air - *"New moths have arrived"* - said a tall boy with a green pair of wings.
 
@@ -73,4 +73,7 @@ Sitting near the edge, a small girl with a red bow at the top of her braided hai
 
 *"... Yule... don't be weird, ok?..."* - said frightenedly the green-winged boy - *"You creep me out when you talk like that..."*
 
+<br />
+
 Yule remained silent, placidly watching from the distance the boys twirling mid-air. 
+
