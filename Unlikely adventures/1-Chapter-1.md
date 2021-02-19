@@ -44,5 +44,6 @@ He thought - *a few steps closer and I might be able to see what's on the other 
 
 
 
-Unknown to Sam, there was another spectator on the island and it had been abruptly woken up by the sudden kerfuffle. The rock was resentful of the kick it had received when its attention was focused on watching the ice of a glacier melt, a glacier which was about to form at any point now but it may have missed it because a kid with its brute force tried to dislodge it from its resting place and a fabulous view of the sea.
+Unknown to Sam, there was another spectator on the island, woken up abruptly by the sudden kerfuffle. It wasn't a traditional spectator as this one belong to the order of inanimate-yet-temperamental sort of characters.
 
+The rock felt resentment of the impromptu kick that woke it up from its trance like state, when it focused on watching the ice of a glacier melt (a glacier which was about to form at any point now these next few eons) but it may have missed it because a kid with his brute force tried to dislodge it from its resting place and a fabulous view of the sea.
