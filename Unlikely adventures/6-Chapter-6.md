@@ -18,7 +18,7 @@ Sam peered through the clouds - *"Virgil?"* - a ghostly shape deformed the path 
 
 *"Animals with very short attention span"* - continued Virgil
 
-*"How short?... ooh, lime and black butterfly!"* - exemplified Sam to Virgil's lack of amusement.
+*"How short?... ooh! Black and lime butterfly!"* - exemplified Sam to Virgil's lack of amusement.
 
 
 
