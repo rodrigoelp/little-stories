@@ -20,7 +20,7 @@ The sun mildly enjoyed the pun, gentle pulses descended of the star. Once the co
 
 
 
-*"What do you mean by ‘suspicious’? It feels a tad insulting. Am I not memorable enough?"* - replied Virgil, waving his hand to the sun, in the same attitude a rock star would lower his sunglasses to a bouncer at a bar. For a brief moment, the sun remembered.
+*"What do you mean by ‘suspicious’? It feels a tad insulting. Am I not memorable enough?"* - replied Virgil, waving his hand to the sun, in the same attitude a rock star would lower his sunglasses to a bouncer at a bar. It took it a brief moment but, the sun remembered.
 
 
 
@@ -32,7 +32,7 @@ A series of glints descended to Virgil, apologetically.
 
 
 
-The star remained with a stable glow an instant then sent twinkle and a short sparkle.
+The star remained with a stable glow an instant then sent a twinkle and a short sparkle.
 
 
 
@@ -40,7 +40,7 @@ The star remained with a stable glow an instant then sent twinkle and a short sp
 
 
 
-The star sent a fickle.
+The star sent a fickle ray, curiously.
 
 
 
@@ -82,11 +82,11 @@ The sun shimmered.
 
 
 
-The sun fulgurated intensely for a few minutes, then flicker weakly for a few seconds as if remembering the line, followed by a gleam and more fulgor.
+The sun fulgurated intensely for a few minutes, then flickered weakly for a few seconds as if remembering the line, followed by a gleam and more fulgor.
 
 
 
-*I've never seen a sun rolling on the celestial vault laughing* - admitted Virgil perplexed to the astronomical event.
+*I've never seen a sun rolling on the celestial vault laughing* - admitted Virgil perplexed by the astronomical event.
 
 
 
