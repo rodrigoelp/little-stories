@@ -1,14 +1,16 @@
 # Earth call
 
-Shadows danced to the rhythm imposed by the light of candles surrounding the statue of the spirit of water, which oversaw three unconscious bodies laying in from of it.
+Shadows danced to the rhythm imposed by the light of candles surrounding the statue of the spirit of water, which oversaw three unconscious bodies laying in front of it.
 
 The musical tempo for the imperceptible music was produced by the periodic influx of air rushing from the statue's mouth. The air was damped with moisture, millions of tiny droplets of water seen as the light shone through. Gave off the impression the statue was alive.
 
-The gentle wind caressed the unquenchable flames clinging to the top of the candles, a waltz in which gas particles barely touched each other, passing from partner to partner as each little ball of plasma extended its proverbial arms letting the protagonist go into the arms of another. A protagonist that soon would disappear.
+The gentle wind caressed the unquenchable flames clinging to the top of the candles, in a waltz in which gas particles barely touched each other. They danced swiftly passing from partner to partner as each little ball of plasma extended its proverbial arms letting the air atoms go into the arms of another flame.
 
-The infinitesimal droplets suspended in the air were pushed out of the way by a single silent gust. It muted the unapparent melody.
+A waltz that was about to end.
 
-The eyes of the status flared on with a sky blue light and a soft stream of water emanated from the rock covering the body of the statue as if a liquid dress had been bestowed upon the object.
+The infinitesimal droplets suspended in the air found themselves pushed out of the way by a single silent gust. It muted the unapparent melody.
+
+The eyes of the statue flared up with a sky blue light and a soft stream of water emanated from the rock covering the body of the statue as if a liquid dress had been bestowed upon the object.
 
 
 
@@ -18,15 +20,15 @@ Sam recognised the soft sand on his back; he remained on it with his eyes closed
 
 *"Uh, uhmm, ouhm, uh..."* - struggled Hannah as her awareness overtook her body - *"something is crushing me"* - continued trying to move her legs covered by Amir. She kicked his legs out of the way reflexively.
 
-*"Ouch!"* - he said, regaining his senses as the world slowed down its spinning - *"... I don't know what I ordered but, it was the last drink that did it"* - he said apologetically, feeling the symptoms of a nasty hangover after a particularly forgettable night.
+*"Ouch!"* - he said, regaining his senses as the world slowed down its spinning - *"... I don't know what I ordered, but it was the last drink that did it"* - he said apologetically, feeling the symptoms of a nasty hangover after a particularly forgettable night.
 
 *"Huh?"* - replied Hannah slowly gaining an understanding of the current world - *"... are we back? We are back!"*
 
-*"Yes"* - replied Sam standing up leaning on the statue - *"I guess, we beat the trial of water."*
+*"Yes"* - replied Sam standing up leaning on the statue - *"I guess, we've beaten the trial of water."*
 
 *"We finished the trial of water but my mouth feels so dry"* - said Amir sitting down, rubbing his forehead with both hands.
 
-*"Gosh... You've been eating sand, Amir"* - said Hannah slightly rolling her eyes, similarly to teenager getting embarrassed by their boyfriend. She stretched her hand to guide him to spit the sand away.
+*"Gosh... You've been eating sand, Amir"* - said Hannah slightly rolling her eyes, similarly to a teenager getting embarrassed by their boyfriend. She stretched her hand to guide him to spit the sand away.
 
 
 
@@ -66,17 +68,17 @@ Sam felt the strong call to the centre of the islet and moved mindlessly ignorin
 
 
 
-To Amir's and Hannah's astonishment, Sam's body gained the ability to move through the cave avoiding common obstacles stretching from the inner chamber walls; some would call this conditioned reflex but, as far as everybody could see, he wasn't drooling and the cave was too dark to see any drool either way.
+To Amir's and Hannah's astonishment, Sam's body gained the ability to move through the cave avoiding common obstacles stretching from the inner chamber walls. Sam moved through the chamber just like someone would move through their house in the middle of the night to get a glass of water, that sort of geospatial awareness attained by bruising your pinky toe one too many times against the leg of an out of place chair.
 
 
 
-The world was nothing more than a blur and a murmur in Sam's head until he stood in front of the monolith. The world regained its sharpness and Sam noticed the hint of fear in Amir's voice as he commented on the current affairs.
+The world was nothing more than a blur and a series of murmurs in Sam's head until he stood in front of the monolith. The world regained its sharpness and Sam noticed the hint of fear in Amir's voice as he commented on the current affairs.
 
 
 
-*"S... S... Sa... Sa... Ssam?"* - stuttered Amir frightfully.
+*"S... S... Sa... Sa... Ssam?"* - stuttered Amir with a hint of fear.
 
-*"Eeek!"* - added Hannah
+*"Eeek!"* - added Hannah.
 
 *"Sam!? your back..."* - said Amir - *"It is coming behind your back!"*
 
@@ -144,7 +146,7 @@ The spectre paused a few instants, the grin was gone, a telltale it was defeated
 
 
 
-Two streaks of yellow light appeared near the wall of the inner chamber, behind the monolith, revealing a long deep crack on the wall covered by boulders and detritus. Inside the outline of another door.
+Two streaks of yellow light appeared near the wall of the inner chamber, behind the monolith, revealing a long deep crack on the wall covered by boulders and detritus. Inside, the outline of another door.
 
 Sam returned his eyes to the space previously occupied by the spectre, it had disappeared.
 
