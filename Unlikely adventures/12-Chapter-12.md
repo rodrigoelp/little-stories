@@ -100,4 +100,4 @@ Patches of clouds detached from the rest of the formation rolling over the hills
 
 She observed the shaded shape scurrying away from her as if the cloud was commanded to move - *"Thank you, old friend."*
 
-*"Your welcome."* - replied Virgil with his insubstantial figure resting on the stone.
+*"You are welcome."* - replied Virgil with his insubstantial figure resting on the stone.
