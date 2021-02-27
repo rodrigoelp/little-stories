@@ -24,7 +24,7 @@ She gave two gentle slaps on Paul's cheeks and turned to face Mathias - *"I do n
 
 *"Uh? Wait, but, I didn't call him stupid! You did!"* - replied Mathias gesturing with his red wings as his arms remained crossed filled with indignation.
 
-*"She never said I am stupid!"* - replied Paul getting an arm tangled with his own wing - *"She said I am something-something wonder. Right, Tere?"*
+*"She never said I was stupid!"* - replied Paul getting an arm tangled with his own wing - *"She said I was something-something wonder. Right, Tere?"*
 
 *"That's right my mentally lethargic eye candy"* - replied Theresa sweetly to Paul. She extended her wings covering both their faces, a \*Smooch\* was heard.
 
@@ -32,7 +32,7 @@ She gave two gentle slaps on Paul's cheeks and turned to face Mathias - *"I do n
 
 *"So Tere, wanna do it?"* - said Paul with playful cheekiness, still under her black wings - *"We just roll downhill, yeah? It'll be fun, you know?"* - continued Paul staring at the tilted terrain with his big smile - *"The sun is sunny and if we just lay low..."*
 
-*"Paw-Paw, I told you already, I won't dare to do it. My wings will get dirty, I get displeased with the sensation of grass against my skin not to mention how dizzy I'll get. I will just sit on the steps around there and I'll watch you roll. I find that a lot more entertaining."* - said Theresa patiently. Her waving dreadlocks charmed Paul, who watched her with puppy eyes as she walked away with her hair flapping with the wind as much as dreadlocks would move with a gentle breeze, not very much.
+*"Paw-Paw, I told you already, I won't dare to do it. My wings will get dirty, I get displeased with the sensation of grass against my skin not to mention how dizzy I'll get. I will just sit on the steps around there and I'll watch you roll. I find that a lot more entertaining."* - said Theresa patiently. Her waving dreadlocks charmed Paul, who watched her with puppy eyes as she walked away with her hair flapping with the wind as much as dreadlocks would move freely in a gentle breeze, not very much.
 
 
 
@@ -44,7 +44,7 @@ Shook himself awake after he imagined a series of winged bunnies running on the 
 
 *"Yule recruiting moths? I doubt it."* - said Mathias to no one in particular - *"I mean, there is a non-zero chance she would take anybody under her tutelage. But not after..."*
 
-He was interrupted by a sweet voice questioning - *"After what?"* - said Yule with a steady tone, stepping off the cavern.
+He was interrupted by a sweet voice questioning - *"After what?"* - said Yule with a steady tone, stepping out of the cavern.
 
 
 
@@ -52,7 +52,7 @@ Theresa, in an atypical impulse, felt the urgent need to roll down the hill with
 
 
 
-*"Oh? I would've thought you were going to stay longer with the Wolf spirit."* - said Mathias diverting the conversation as he  aware of the idea that in principle you should never kick a wasps' nest.
+*"Oh? I would've thought you were going to stay longer with the Wolf spirit."* - said Mathias diverting the conversation as he was aware of the idea that, in principle, you should never kick a wasps' nest.
 
 
 
@@ -70,7 +70,7 @@ Yule remained silent, fixated on a stone illuminated by pulsating rays of light.
 
 *"Yule? is everything all right?"* - asked Mathias following the direction of her gaze, staring at the empty space above the stone in the flowery field.
 
-*"I think I'll go and sit for a while"* - said  Yule stepping towards the sunbathed stone, her mind absent, lost in thoughts - *"... by myself, Mat. If you don't mind?"* - she added, stopping Mathias unconscious steps that had begun following her.
+*"I think I'll go and sit for a while"* - said  Yule stepping towards the sunbathed stone, her mind absent, lost in thoughts - *"... by myself, Mat. If you don't mind?"* - she added, stopping Mathias' unconscious steps that had begun following her.
 
 *"Oh, right!"* - complemented Mathias awkwardly - *"yes... sure... I'll better join those two. They will appreciate the third wheel, I hope. I heard it is really fun too!"* - added leaving Yule by herself, opening his hot red wings, propelling himself up and forward in the air with a single flap.
 
@@ -78,7 +78,7 @@ Yule remained silent, fixated on a stone illuminated by pulsating rays of light.
 
 Yule's hair flicked with the forceful gush of air. She waited for a moment and then continued her march towards the sun-lit rock.
 
-The wind gently flowed against her - *this feels nice* - she thought making progress towards the spot until she finally reached her. Her gaze turned towards her friends debating the levels of itchiness of certain strains of grass against their skin. She sat on the flower-covered area next to the stone.
+The wind gently flowed against her - *this feels nice* - she thought making progress towards the spot until she finally reached it. Her gaze turned towards her friends debating the levels of itchiness of certain strains of grass against their skin. She sat on the flower-covered area next to the stone.
 
 
 
@@ -86,7 +86,7 @@ The wind gently flowed against her - *this feels nice* - she thought making prog
 
 
 
-She remained quiet for an instant, covering her body with her wings and a tender hug - *"At times, I feel I could stay here forever."* - she continued her commentary to intangible ears.
+She remained quiet for an instant, covering her body with her wings in a tender hug - *"At times, I feel I could stay here forever."* - she continued her commentary to intangible ears.
 
 
 
