@@ -1,28 +1,30 @@
 # Earthbound
 
-The trio of children walked around a stone statue sitting on a stack of dark grey rocks. Candles lit the room similarly to the trial of water, the arrangement of the candles was somewhat different. At the trial of water, the statue was surrounded by the candles, in here most of the candles were located at each side of the statue, casting two large shadows giving the appearance the statue was moving with the shadows.
+The trio of children walked around a stone statue sitting on a stack of dark grey rocks. Like the room of the trial of water, candles illuminated the room though, the arrangement of the candles was somewhat different.
+
+At the trial of water, the statue was surrounded by the candles, in here most of the candles were located at each side of the statue, casting two large shadows giving the appearance the statue was moving with the shadows.
 
 
 
-The statue was made of a similar material as the previous statue, a porous granite rock, mostly grey and white but it had a hint of rose pink, giving off the impression the statue was once a living creature that solidified over eons. Its face was covered by a mask which, to the children, it looked like a giant spider eating its user's face away.
-
-
-
-*"It looks ghastly"* - described helpfully Amir - *"having that thing on its face wouldn't have been nice. If you look up close, its legs have hairs on them!"*
+The statue was made of a similar material as the previous statue, a porous granite rock, mostly grey and white but it had a hint of rose pink, giving off the impression the statue was once a living creature that solidified over eons. Its face was covered by a mask which, to the children, looked like a giant spider eating its user's face away.
 
 
 
 *"This trial's guardian seems to be a girl"* - observed Sam, detailing the delicate traits present on the figure in front of him.
 
+*"Ghastly, the spirit looks ghastly"* - described helpfully Amir - *"having that spider thing on there, it can't be nice. It has hairy legs!"*
 
+*"What has hairy legs? The girl or the spider?"* - said inquisitively Hannah.
+
+*"Definitely the spider."* - said Sam still detailing the statue from up close.
 
 *"Maybe that spider is not part of the spirit and it is just waiting to jump on us"* - continued Amir describing the horrid sight. 
 
 
 
-*"Last time we had to look at its face"* - discussed Sam with the rest of the children - *"If you looked to its eyes it would flash you with blue light and you woke up in that world."*
+*"Last time we had to look at its face"* - discussed Sam with the rest of the children - *"If you looked into its eyes it would flash you with blue light and you woke up in that world."*
 
-*"Which eye do we need to look at? it was 8!"* - argued Amir in an attempt to pick signs of life revealing the mask was indeed a creature lurking for its next victim.
+*"Which eye do we need to look at? it has eight!"* - argued Amir in an attempt to pick signs of life revealing the mask was indeed a creature lurking for its next victim.
 
 
 
@@ -30,11 +32,11 @@ The statue was made of a similar material as the previous statue, a porous grani
 
 
 
-*"I hate to make you repeat it but, tell us how it happened the last time?"* - she queried.
+*"I hate to make you repeat it but, tell us how it happened the last time?"* - she queried - *"Or memory is fuzzy and you seem to remember it better than we do."*
 
 
 
-Sam looked down in an attempt to recover as many details of the last encounter with the water spirit - *"I remember the soft sand in there, I stood on top of it and looked at the statue, I wanted to find you and I was scared you were dead. Then the statue flashed me and felt like my guts were pulled inside out for a second because all the feeling was gone. The next time I opened my eyes, I was in that world."*
+Sam looked down in an attempt to recover as many details of the last encounter with the water spirit - *"I remember the soft sand in there, I stood on top of it and looked at the statue, I wanted to find you and I was scared you were dead. Then the statue flashed me and I felt like my guts were pulled inside out for a second because all the feeling was gone. The next time I opened my eyes, I was in that world."*
 
 
 
@@ -56,7 +58,7 @@ Nothing happened for a few minutes.
 
 *"I don't think it'll work"* - said Hannah.
 
-*"Abracadabra!"* - continued Amir. Nothing happened.
+*"Abracadabra!"* - continued Amir. Nothing happened - *"Alakazam!"*
 
 *"Boom shaka laka!"* - he tried again.
 
@@ -78,7 +80,7 @@ The children went around the statue one more time, trying to understand how to b
 
 *"It has some writing on it"* - she added - *"It is too dark to see what it says!"*
 
-Sam had come to help her, blocking as a result the little light reaching Hannah - *"Could you please move away? You are making it worst."*
+Sam had come to help her, blocking as a result the little light reaching Hannah - *"Could you please move away? You are making it worse."*
 
 
 
@@ -98,7 +100,7 @@ Sam and Hannah both looked puzzled at the statue - *"How can you read it?"*
 
 Amir stood up. A lit candle in his hand - *"You said it was too dark, I grabbed one of these and came to read it. Do you know what it means?"*
 
-Hannah looked at Amir with a different light, different from the lighted candle in his hand, either way - *"... let me think what you just said."* - she added.
+Hannah looked at Amir in a different light, different from the lighted candle in his hand, either way - *"... let me think about what you just said."* - she added.
 
 *"‘scientia’ is the old way of saying knowledge, I think."* - she said reflexively.
 
@@ -130,8 +132,8 @@ Hannah looked at the ceiling of the room with a concern looked - *"I hope we hav
 
 
 
-The rumbling sound stopped as suddenly as it had started, the statue remained immobile with its yellow glowing eyes staring at them. The trio recovered their standing and waited in the silence for a minute.
+The rumbling sound stopped as suddenly as it had started, the statue remained immobile with its yellow glowing eyes staring at them.
 
+The lack of sound and shakiness made them feel more comfortable standing and waited in silence, filled with expectation, for about a minute.
 
-
-*"I think we are sav-Aaaaaaaaaaaaaaaagh!!!"* - tried to comment Amir as the mound of sand sucked them down with it as the sand disappeared in a sinkhole, dropping the trio to the void beyond.
+*"I think we are sav-Aaaaaaaaaaaaaaaagh!!!"* - tried to comment Amir as the mound of sand sucked them down with it and the sand disappeared in a sinkhole, the trio dropped into the void beyond.
