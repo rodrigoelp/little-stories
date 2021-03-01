@@ -86,13 +86,15 @@ Sam had come to help her, blocking as a result the little light reaching Hannah 
 
 *"I'm just trying to help"* - said Sam apologetically, walking about to face the statue.
 
-*"I'm sorry Sam, I wasn't trying to be rude but..."* - she said standing to the side of the statue, leaving the phrase incomplete as most people tend to do excusing a horrible trait of themselves. She got fixated on Sam's face filled with regret and walked discouraged towards Sam as she tried to think on ways to read the text.
+*"I'm sorry Sam, I wasn't trying to be rude but..."* - she said standing to the side of the statue, leaving the phrase incomplete as most people tend to do excusing a horrible trait of themselves, you know you are in for trouble when someone says ‘I am not racist but’ followed by the most insulting statement ever.
+
+Sam's face told the entire story, he felt regret and discouraged at his failed attempt to be helpful. Hannah submerged herself in her thoughts analysing their current predicament.
 
 
 
 *"`Ipsa scientia potestas est.`"* - said Amir's voice.
 
-*"What?"* - said Hannah confused.
+*"... I'm sorry, What?"* - said Hannah confused.
 
 *"Ipsa scientia potestas est... that's what it says here"* - restated Amir's voice from behind the statue.
 
