@@ -6,13 +6,13 @@ Hannah, Sam, and Amir remained in the middle of the corridor looking at the poss
 
 Hannah detailed her surroundings. With the exception of the sand below their feet, everything else seemed to be made of sandstone, even the gates.
 
-The walls were mostly featureless, if you ignored the grey strata lines branching out every now and then, though, you could spot every now and then a cutout on the wall, resembling a window of sorts.
+The walls were mostly featureless, if you ignored the grey strata lines branching out every now and then, though, you could spot the sporadic cutout on the wall, resembling a window of sorts.
 
-The maze seemed to have been designed to accommodate giants. Or at least, to prevent its inhabitants from ever escaping. The walls were easily more than six times their height.
+The maze gave the impression it was designed to accommodate giants, or at least, to prevent its inhabitants from ever escaping. The walls were easily more than six times their height.
 
 Hannah missed her wings, a few flaps and they would have flown straight to wherever they needed to go. How conveniently-inconvenient was this restriction.
 
-Sam felt Hannah's pre-occupied mind trying to work out possible ways out. He just observed some of the little details of the world around. His brain still churning, trying to understand the odd sensation when they first arrived - *Why was everything so... sandy?*
+Sam felt Hannah's pre-occupied mind trying	 to work out possible ways out. He just observed some of the little details of the world around. His brain still churning, trying to understand the odd sensation when they first arrived - *Why was everything so... sandy?*
 
 Amir walked up and down the corridor, he had found a few blocks carved out of the wall, sort of like a stair, as the elevated platform curved out of sight into a foreign passage.
 
@@ -32,7 +32,7 @@ Amir walked up and down the corridor, he had found a few blocks carved out of th
 
 
 
-The path bend and turn slightly a few times, coming to an abrupt interruption as a gap removed a large part of the corridor, leaving three floating blowers, suspended in midair by invisible forces. The boulders rotated freely, defiant of gravity. The tiny leverage of the air passing through made the boulders softly spin.
+The path bent and turned slightly a few times, coming to an abrupt interruption as a gap removed a large part of the corridor, leaving three floating boulders, suspended in midair by invisible forces. The boulders rotated freely, defiant of gravity. The tiny leverage of the air passing through made the boulders softly spin.
 
 *"That does not seem safe"* - remarked Hannah looking apprehensively at the nothingness below the boulder - *"I think this is a dead end. Let's go back."* - she continued as she marched west followed by Amir.
 
