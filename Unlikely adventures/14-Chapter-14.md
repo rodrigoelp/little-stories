@@ -85,7 +85,7 @@ Amir helped Sam to stand up and the trio took a few steps to read a memorial sto
 
 
 ```
-To walk safely throuhg the maze of our cosmic existence, 
+To walk safely through the maze of our cosmic existence, 
 one needs the light of wisdom, 
 the guidance of virtue and the simplicity of the heart.
 
@@ -111,7 +111,7 @@ Sam decided, it was best to ignore the details of the bottomless pit behind and 
 
 Amir observed the tall gates made of firm bright white sandstone.
 
-*"I got this"* - he said running towards the immovable object with firm determination to swing it open. On the other hand, the gate ignored a slightly concussed child that had clashed on its feet and remained on the floor as his friends gather around.
+*"I got this"* - he said running towards the immovable object with firm determination to swing it open. On the other hand, the gate ignored a slightly concussed child that had clashed on its feet and remained on the floor as his friends gathered around.
 
 Hannah looked at Amir laying on the floor, dismissing his futile attempt and said - *"Uhm, Could you ‘please’ let us in?"*
 
