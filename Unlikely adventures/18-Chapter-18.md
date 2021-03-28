@@ -4,7 +4,7 @@ Hannah felt uncomfortable not being able to hear footsteps at all. It made the s
 
 *If I were to walk slowly, they would catch up with me and we would leave everything behind.* - she thought filled with remorse.
 
-Words bounced off the walls into Hannah's ears. She heard clearly when Amir shot down Sam's attempt to strike conversation. Amir was clearly bumped down as she blurted down all of those negative feelings. She hated herself at this moment, she wanted to apologise but she remembered that - *words are like water spilled on the ground. It is difficult to take back.*
+Words bounced off the walls into Hannah's ears. She heard clearly when Amir shot down Sam's attempt to strike conversation. Amir was clearly bumped down as she blurted down all of those negative feelings. She hated herself at this moment, she wanted to apologise but she remembered that - *words are like water spilled on the ground. It is difficult to take back, especially if the ground is filled with this much sand.*
 
 She felt an even heavier load on her shoulders.
 

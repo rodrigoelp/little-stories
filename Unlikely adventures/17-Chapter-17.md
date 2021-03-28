@@ -4,7 +4,7 @@ Puffs, huffs, puffed huffs and huffed puffs echoed down the slide, where three c
 
 *"At least, it was fun!"* - said Amir in an attempt to find a positive outcome to their current predicament.
 
-Unfortunately, as things go, there are times when it is best to remain silent and sad than positive and cheerful. This was one of those opportunities Amir didn't take.
+Unfortunately, as things go, there are times when it is best to remain silent-and-sad than positive-and-cheerful. This was one of those opportunities Amir didn't take.
 
 The words bounced against Hannah as a ball would bounce of the trigger of an explosive who just happened to wonder a little too close to a volcano about to erupt. Some of the frustration brewing in Hannah mixed with the empty space where her temper used to reside and she... erupted - *"Fun? FUN? Is everything a joke to you?"*
 
@@ -12,9 +12,9 @@ Amir looked in despair as a hare would look at... an exploding volcano. Unluckil
 
 *"Fun! HA! All of this is your bloody fault! All of it Amir!"* - continued Hannah, red mist covering her judgement - *"We walked slowly and you ran! You made us fall! Why Amir? Just tell me, why do you take everything as a joke? There is nothing sacred to you! We almost fell there and you make a stupid joke!"*
 
-*"I'm... sorry, ok? Please don't be ma..."* - Amir tried to contained the tsunami of anger overflowing Hannah. His apology made her angrier.
+*"I'm... sorry, ok? Please don't be ma..."* - Amir tried to contained the tsunami of hot magmatic anger overflowing Hannah. His apology made her angrier.
 
-*"Mad? Are you seriously going to tell me to calm down??? I asked you to help and you joked holding onto me! Back there with the riddle, how did you help? When have you been of any use???"* - Hannah's rationality had walked out of the metaphorical room, anger was driving her mouth now.
+*"Don't get mad? Are you seriously going to tell me to calm down??? I asked you to help and you joked holding onto me! Back there with the riddle, how did you help? When have you been of any use???"* - Hannah's rationality had walked out of the metaphorical room, anger was driving her mouth now.
 
 *"I am glad Sam is with us! If it wasn't for him I would still be stuck on a chunk of ice, listening to you and your silly blue foot!"* - she proceeded as she ignored Sam's hand gestures to ‘cut it out’
 
