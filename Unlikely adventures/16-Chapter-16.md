@@ -162,4 +162,4 @@ As if commanded, the sand rolling with them clumped together and anchored itself
 
 The children remained on the floor, panting and tired.
 
-The sound balls of sand echoed against the walls, serving as a reminder to the children what would happen if they hurry towards the vast emptiness.
+The sound of balls of sand exploding echoed against the walls, serving as a reminder to the children what would happen if they hurry towards the vast emptiness.
