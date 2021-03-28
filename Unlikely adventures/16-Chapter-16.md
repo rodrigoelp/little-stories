@@ -2,7 +2,7 @@
 
 # Fair compensation
 
-Amir sat on the floor as he observed resentfully the wall - *"What now?"* - he added, still rubbing his head.
+Amir sat on the floor as he resentfully observed the wall - *"What now?"* - he added, still rubbing his head.
 
 *"Well, this is a dead end. We looked around the corner the path just stops"* - said Sam, helpfully stating what the other two already knew but, perhaps, an invisible entity didn't.
 
@@ -26,11 +26,11 @@ Sam looked apprehensively to the blackness below - *"(Gulp!)"*
 
 The loud noise made by Sam's throat surprised Hannah, it felt a bit cartoonish yet the sensation was interrupted, as a blurred version of Amir went past them at full speed.
 
-Amir had jumped from the edge of the corridor onto the first boulder and, without losing any momentum, his legs stretched to reach the final two boulders and finally, the opposite side of the gap. It took him three large steps.
+Amir had jumped from the edge of the corridor onto the first boulder and, without losing any momentum, his legs stretched to reach the final two boulders and finally, the opposite side of the gap. It took three large steps.
 
 *Maybe he is part goat* - thought Sam remembering Hannah's previous comments.
 
-Hannah felt infused with confidence seeing Amir achieve his goal so easily and ventured next. She carefully tested the rigidity of each bounder as she set foot on each one. The first two bounders were the hardest, partly due to the expectation of the unexpected, but, as she reached the third boulder, she saw an open arms Amir waiting for her. She just hopped into the embracing warmth.
+Hannah felt infused with confidence seeing Amir achieving his goal so easily and ventured next. She carefully tested the rigidity of each bounder as she set foot on each one. The first two bounders were the hardest, partly due to the expectation of the unexpected, but, as she reached the third boulder, she saw an open arms Amir waiting for her. She just hopped into the embracing warmth.
 
 *"Th... Thanks!"* - she said softly baring her face into Amir's chest. The tender moment was interrupted by Amir's personality.
 
@@ -40,7 +40,7 @@ Sam felt his stomach clenching.
 
 Nervousness ran through his brain.
 
-Took a deep breath fighting his racing brain, as if more air was going to make the whole process easier. Shook his head side to side and stepped back two or three metres from the edge before launching himself forward, running at full speed.
+He took a deep breath fighting his racing brain, as if more air was going to make the whole process easier. Shook his head side to side and stepped back two or three metres from the edge before launching himself forward, running at full speed.
 
 *"What is he doing? You don't need to sprint!"* - said Amir to Hannah.
 
@@ -50,9 +50,9 @@ The third landing, if that could be called landing, consisted on Sam landing wit
 
 Pain shoot up from his ankle as the leg gave up the fight between the forces at play. The pain told him gravity was sure to win. His brain told him to close his eyes and wait for the worst. Unconsciously, he extended his arms.
 
-*"I got you buddy!"* - said Amir, laying on the floor holding Sam's hands. Sam swung gently with emptiness blow his feet. A few pebbles dislodged by the sudden set of movements, falling into the void.
+*"I got you buddy!"* - said Amir, laying on the floor holding Sam's hands. Sam swung gently with emptiness below his feet. A few pebbles dislodged by the sudden set of movements, fell into the void.
 
-As Sam observed the pebbles venture deeper into the unknown, he saw the pebbles exploded into fine particles as a ball of sand would do when you hit it with a hammer.
+As Sam observed the pebbles venture deeper into the unknown, he saw them exploding into fine particles, just like a ball of sand would do when you hit it with a hammer.
 
 *"Amir! Don't let go!"* - said Sam, terror filling every gap of the sentence - *"Please! Please! Don't let go!"*
 
