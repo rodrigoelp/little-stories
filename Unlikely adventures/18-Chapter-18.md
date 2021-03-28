@@ -62,7 +62,7 @@ Another ‘plop’ echoed on the walls and reached her.
 
 Hannah followed the echoes of Sam's voice, another turn right and she saw them. Amir sat on the floor, staring at the gate. Sam waved his hands in the air.
 
-*"How did you two got her so quickly?"* - asked Hannah but followed her question with a statement, effectively leaving Sam with the answer in his mouth - *"Is that the gate? It looks gorgeous!"*
+*"How did you two got here so quickly?"* - asked Hannah but followed her question with a statement, effectively leaving Sam with the answer in his mouth - *"Is that the gate? It looks gorgeous!"*
 
 
 
