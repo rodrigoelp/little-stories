@@ -10,7 +10,7 @@ She felt an even heavier load on her shoulders.
 
 Her slow pace turned into a feet dragging motion. Her heart was sinking with guilt.
 
-She pushed herself to walk, the motion allowed her to, somewhat, focus on the path as opposed to the horrible things she said. As she turned left or right, she battled with the idea of continue by herself, granting some space to breathe and leave the frustration behind, or go back and hug Amir as she asked for forgiveness.
+She pushed herself to walk, the motion allowed her to, somewhat, focus on the path as opposed to the horrible things she said. As she turned left or right, she battled with the idea of continuing by herself, granting some space to breathe and leave the frustration behind, or go back and hug Amir as she asked for forgiveness.
 
 She felt like the second option was better, she ran back in an attempt to find Sam and Amir. It wasn't successful as she found herself alone in a completely new corridor.
 
@@ -26,7 +26,7 @@ She walked down the corridor, turned right then twice left and finally right aga
 
 *Think girl, you got to find your way.* - she continued the thought.
 
-*"Sam?"* - she enquired again to no response. Her anxiety had started to show. Her mind show her terrible situations in which Sam and Amir got themselves into and by now, they must be at the death's door, or at the very least at its porch.
+*"Sam?"* - she enquired again to no response. Her anxiety had started to show. Her mind showed her terrible situations in which Sam and Amir got themselves into and by now, they must have visited the death's door, or at the very least, its porch.
 
 She shook her head as if the movement would dislodge the thought - "Sam? Can you hear me?"
 
@@ -36,9 +36,9 @@ Another turn to the left, another sprint for three hundred metres and another de
 
 *Did they leave without me? No, no, they wouldn't... would they?* - Hannah had started to discuss with herself - *Maybe they found the way out and I am stuck here, because I yelled at Amir. I said such horrible things to him.*
 
-*"Amir?"* - she called. Then she lower her voice and said - *"I'm sorry. I didn't want to say those things. I am the silly head."*
+*"Amir?"* - she called. Then she lowered her voice and said - *"I'm sorry. I didn't want to say those things. I am the silly one."*
 
-The walls observed at the girl getting increasingly depressed. The walls decided to motivate her releasing a few pebbles metres away from her. 
+The walls observed the girl getting increasingly depressed. The walls decided to motivate her by releasing a few pebbles metres away from her. 
 
 *"Hello? Sam? Amir?"* - she queried followed by her thoughts -  *Of course it was nothing.*
 
@@ -52,7 +52,7 @@ Another ‘plop’ echoed on the walls and reached her.
 
 *"What did I do? We've been standing here for a while!"* - replied Sam.
 
-*"Sam?"* - queried doubtfully Hannah, not believing the stream of words that reached her senses.
+*"Sam?"* - queried Hannah doubtfully, not believing the stream of words that reached her senses.
 
 *"Yeah... where are you?"* - asked Sam. Hannah felt his voice was close.
 
@@ -80,7 +80,7 @@ Each crystal glowed with its pale blue light.
 
 *"In any case, look closer, there are two smaller crystals in there. What are those?"* - said Sam.
 
-*"I think... Uhm... I don't know"* - she replied observing curiously at the missed detail - *"the constellation doesn't have any these stars in it."*
+*"I think... Uhm... I don't know"* - she replied observing with curiosity the missed detail - *"the constellation doesn't have any these stars in it."*
 
 Sam wanted to ask Amir for his opinion but, he remained seated  a few metres away from the frame, staring at nothing in particular.
 
@@ -116,15 +116,15 @@ Sam didn't reply.
 
 Her voice resonated in the figment of her imagination.
 
-A mental image had formed of a giant person, opening a jar and letting go tiny glowing creatures flapping away. She moved her hand closer to the pair of gems, foreign to the vase pattern and moved her finger around it, drawing the shape of a butterfly around each stone. She was surprised to find that her fingers dug deep into the stone of the gate as she followed her imagination and completed the pair of insects.
+An image of a giant formed in Hannah's mind. The giant opened a jar and let go tiny glowing creatures which flapped away. She moved her hand closer to the pair of gems, foreign to the vase pattern and moved her finger around it, drawing the shape of a butterfly around each stone. She was surprised to find that her fingers dug deep into the stone of the gate as she followed her imagination and completed the pair of insects.
 
-*"There!"* - she said, stepping away from the gate to admire her creation. The gate now displayed a vase with two butterflies been released. She smiled gently.
+*"There!"* - she said, stepping away from the gate to admire her creation. The gate now displayed a vase with two butterflies being released. She smiled gently.
 
-A sudden grinding sound shook the children. Even Amir jerked a little as the noise catch him unprepared.
+A sudden grinding sound shook the children. Even Amir jerked a little as the noise caught him unprepared.
 
 The gems encased with the outlined butterflies glowed in golden light. The groove Hannah left behind on the sandstone had started to be filled by liquid crystal, or so they thought, as the beautiful shapes filled with golden light.
 
-The crystal butterflies seemed alive as the gates revealed yet another passage deeper into the maze.
+The crystal butterflies seemed alive on the gates moving away, revealing yet another passage deeper into the maze.
 
 They faced another wall. Another selection of challenges to tackle.
 

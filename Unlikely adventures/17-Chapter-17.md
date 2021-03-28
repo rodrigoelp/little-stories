@@ -1,10 +1,10 @@
 # Earth shattering
 
-Puffs, huffs, puffed huffs and huffed puffs echoed down the slide, where three children remained on the floor out of fear the jerking motion of their legs would send them plunging into nothingness.
+Puffs, huffs, puffed huffs and huffed puffs echoed down the slide, where the three children remained on the floor out of fear the jerking motion of their legs would send them plunging into nothingness.
 
 *"At least, it was fun!"* - said Amir in an attempt to find a positive outcome to their current predicament.
 
-Unfortunately, as things go, there are times when it is best to remain silent-and-sad than positive-and-cheerful. This was one of those opportunities Amir didn't take.
+Unfortunately, as things go, there are times when it is best to remain silent-and-sad than positive-and-cheerful. This was one of those opportunities, which Amir didn't take.
 
 The words bounced against Hannah as a ball would bounce of the trigger of an explosive who just happened to wonder a little too close to a volcano about to erupt. Some of the frustration brewing in Hannah mixed with the empty space where her temper used to reside and she... erupted - *"Fun? FUN? Is everything a joke to you?"*
 
@@ -14,7 +14,7 @@ Amir looked in despair as a hare would look at... an exploding volcano. Unluckil
 
 *"I'm... sorry, ok? Please don't be ma..."* - Amir tried to contained the tsunami of hot magmatic anger overflowing Hannah. His apology made her angrier.
 
-*"Don't get mad? Are you seriously going to tell me to calm down??? I asked you to help and you joked holding onto me! Back there with the riddle, how did you help? When have you been of any use???"* - Hannah's rationality had walked out of the metaphorical room, anger was driving her mouth now.
+*"Don't get mad? Are you seriously going to tell me to calm down??? I asked you to help and you joked holding onto me! Back there with the riddle, how did you help? When have you been of any use???"* - Hannah's rationality had walked out of the metaphorical room, anger drove her now.
 
 *"I am glad Sam is with us! If it wasn't for him I would still be stuck on a chunk of ice, listening to you and your silly blue foot!"* - she proceeded as she ignored Sam's hand gestures to ‘cut it out’
 
@@ -36,6 +36,6 @@ Sam couldn't even make up if Amir was breathing or not. He stretched an arm to r
 
 *"I'm sorry I let you down."* - interrupted Amir once more. His thoughts didn't allow him to understand the arguments Sam tried to convey.
 
-After a while, the pair of friends remained speechless. Sam was unsure what was the right thing to say. He looked at his friend unable to break the gloom blinding Amir. His despaired was replaced with anxiety when Amir stood up and quietly walked in the direction Hannah had disappeared in.
+After a while, the pair of friends remained speechless. Sam was unsure what was the right thing to say. He looked at his friend unable to break the gloom blinding Amir. His despair was replaced with anxiety when Amir stood up and quietly walked in the direction Hannah had disappeared in.
 
 Sam followed him a worried.

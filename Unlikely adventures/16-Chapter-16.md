@@ -64,11 +64,11 @@ Sam's flame beat with such force, his entire body moved as his chest glowed. He 
 
 *"Sam, are you ok?"* - Hannah asked tentatively to Sam as he recovered the pacing of his breathing.
 
-*"Yes... fine... sorry about that"* - he added a little self absorbed on what could have happened if Amir wouldn't have catch him - *"Let's continue, ok?"*
+*"Yes... fine... sorry about that"* - he added a little self absorbed on what could have happened if Amir wouldn't have caught him - *"Let's continue, ok?"*
 
 *"It's all good buddy!"* - said Amir beaming with happiness - *"When I saw you jumping like ‘flummm!’ I thought ‘no way!’ And jumped in like ‘swoom!’ And you were like..."*
 
-*"Enough Amir!"* - interrupted Hannah as she noticed a Sam filled with stress.
+*"Enough Amir!"* - interrupted Hannah as she noticed Sam filled with stress.
 
 Amir felt another look filled with disapprobation and decided it was best to pick up Sam and follow Hannah.
 
@@ -80,9 +80,9 @@ The corridor ended on a almost pure white sandstone gate, decorated with eight g
 
 *"Father's constellation"* - said Hannah, recognising the pattern.
 
-*"Wait! Who's father? Do you have a father?"* - answered Amir with a hint if anxiety in his voice as he tried to get his messy hair back in a presentable form.
+*"Wait! Who's father? Do you have a father?"* - answered Amir with a hint of anxiety in his voice as he tried to get his messy hair back in a presentable form.
 
-*"Not my father, everybody's father"* - she replied in an attempt to clarify, though it backfired as she noticed Amir distancing from her - *"Father is the name of one of the elders."*
+*"Not my father, everybody's father"* - she replied in an attempt to clarify, though it backfired; she noticed Amir distancing from her - *"Father is the name of one of the elders."*
 
 *"Ah, phew!"* - said Amir relieved - *"You got me there for a sec!"*
 
@@ -128,7 +128,7 @@ The gate closed behind them, the glowing stars slowly faded away leaving the gla
 
 The children's eyes inspected their new environment.
 
-The corridor wasn't that much different to the previous one. Perhaps, it featured a lot less fake windows and it was less tidy. The ground was littered with debris laying around and the sand had a coarser feel to it. One obvious difference in this corridor was its noticeable tilt towards on particular side.
+The corridor wasn't that much different to the previous one. Perhaps, it featured a lot less fake windows and it was less tidy. The ground was littered with debris laying around and the sand had a coarser feel to it. One obvious difference in this corridor was its noticeable tilt towards one particular side.
 
 Sam's eyes travelled across multiple details on the walls.
 
@@ -138,7 +138,7 @@ Hannah's gaze ran through the length of the corridor and decided, it was time to
 
 Sam followed her feeling a bit unstable. He had recovered his composure but the grains of sand made him skid, missing one or two steps.
 
-*"... Quality over quantity, you know? That's what I am saying. I am sure that little bit a bread was so much better than... oi!"* - continued Amir lost in his internal discussion, when he noticed his companions a fair way down the corridor.
+*"... Quality over quantity, you know? That's what I am saying. I am sure that little bit of bread was so much better than... oi!"* - continued Amir lost in his internal discussion, when he noticed his companions a fair way down the corridor.
 
 Amir rushed to catch up with his friends - *"Oi! Wait for me! Woah-oh-oh-waaaaah!"* - but the loose sand made him fall and slowly but surely he gained speed as the ground became more tilted.
 
@@ -162,4 +162,4 @@ As if commanded, the sand rolling with them clumped together and anchored itself
 
 The children remained on the floor, panting and tired.
 
-The sound of balls of sand exploding echoed against the walls, serving as a reminder to the children what would happen if they hurry towards the vast emptiness.
+The sound of balls of sand exploding echoed against the walls, as a reminder to the children, about what would happen if they have hurried towards the vast emptiness.
