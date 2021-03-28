@@ -1,8 +1,14 @@
 # The guide
 
-acrimonious if you didn't pray daily and didn't doubt its word.
+The afterlife was a complicated subject in any universe. It was an alternate pocket in which fantasy and reality would mingle to reveal fantastic entities, some judgemental others playful and ignorant. Let's call them gods to just give them a name. The most curious characteristic of these gods is the lack of understanding of the inner most desires and wishes of their believer. 
 
-In this universe, the afterlife was a bit more pragmatic. The spirit of those who have passed away reunited with their loved ones, and in some cases, just acquaintances awaiting an explanation to the most important question in their intangible minds: How come you were holding an incredibly heavy flower pot at the same time I walked under your balcony? and how come you had a second one that also landed on my head?
+In some universes, gods would manifest as a flower pot or a whale falling towards the ground. They originally intended to command armies to charge at forbidden cities but, they had appeared out of the thin air when probabilities collapsed into their existence. 
+
+In others they would become gigantic water horses riding the waves sinking the ships of those who have been naughty.
+
+Or in some universes, they would become small tortoises trying to persuade a particular monk to not leave them behind.
+
+In any case, gods would be acrimonious if you didn't pray daily and didn't doubt its word; and that was acceptable for those universes. In this universe, the afterlife was a bit more pragmatic. The spirit of those who have passed away reunited with their loved ones, and in some cases, just acquaintances awaiting an explanation to the most important question in their intangible minds: How come you were holding an incredibly heavy flower pot at the same time I walked under your balcony? and how come you had a second one that also landed on my head?
 
 This afterlife has a peaceful beauty, most of the spirits floated around like shooting stars, glowing their path as they went through. Some of the spirits, the Elders, took a more corporeal appearance suitable for good storytelling.
 
