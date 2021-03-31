@@ -1,14 +1,18 @@
 # Finger paintings
 
-Hannah felt uncomfortable not being able to hear footsteps at all. It made the silence even more unbearable and awkward, a silence that previously was kept distant by Amir providing commentary. She didn't dare to turn around and face the aftermath of her anger.
+The uncomfortable sensation of not hearing footsteps behind her flooded Hannah's reason, preventing the formation of any logical thinking.
 
-*If I were to walk slowly, they would catch up with me and we would leave everything behind.* - she thought filled with remorse.
+It made the silence unbearable and awkward, a silence that previously was kept distant by Amir's never-ending commentary. She didn't dare to turn around and face the aftermath of her uncontrolled, untamed and unfair anger.
 
-Words bounced off the walls into Hannah's ears. She heard clearly when Amir shot down Sam's attempt to strike conversation. Amir was clearly bumped down as she blurted down all of those negative feelings. She hated herself at this moment, she wanted to apologise but she remembered that - *words are like water spilled on the ground. It is difficult to take back, especially if the ground is filled with this much sand.*
+*If I were to walk slowly, they would caught up with me. Perhaps, Amir would say a light comment and we would laugh it up.* - she thought wishfully though her mind was filled with remorse.
 
-She felt an even heavier load on her shoulders.
+Words bounced off the walls into Hannah's ears; it told her that Amir had shot down Sam's attempt to strike conversation. Amir was clearly devastated by everything she blurted out, all of those negative feelings. She hated herself at this moment, she wanted to apologise but she remembered that - *words are like water spilled on the ground. It is difficult to take back, especially if the ground is filled with this much sand.*
+
+The load on her shoulders became heavier as she remembered the last few events.
 
 Her slow pace turned into a feet dragging motion. Her heart was sinking with guilt.
+
+*Why did I yell at him like that?* - asked herself. She needed to do some self reflection because the Hannah that erupted irrationally back there wasn't the Hannah she knew, or at least, she thought she knew.
 
 She pushed herself to walk, the motion allowed her to, somewhat, focus on the path as opposed to the horrible things she said. As she turned left or right, she battled with the idea of continuing by herself, granting some space to breathe and leave the frustration behind, or go back and hug Amir as she asked for forgiveness.
 
@@ -22,25 +26,27 @@ There was no reply.
 
 She walked down the corridor, turned right then twice left and finally right again.
 
-*Yup, I can't remember this spot either.* - she thought getting upset at herself.
+*Yup, I can't remember this spot either.* - she thought getting upset at herself once more.
 
-*Think girl, you got to find your way.* - she continued the thought.
+*Think girl, you got to find your way; can't depend on others all the time.* - she continued the thought.
 
 *"Sam?"* - she enquired again to no response. Her anxiety had started to show. Her mind showed her terrible situations in which Sam and Amir got themselves into and by now, they must have visited the death's door, or at the very least, its porch.
 
-She shook her head as if the movement would dislodge the thought - "Sam? Can you hear me?"
+She shook her head as if the movement would dislodge the thought - *"Sam? Can you hear me?"*
 
 There was no reply.
 
 Another turn to the left, another sprint for three hundred metres and another dead end.
 
-*Did they leave without me? No, no, they wouldn't... would they?* - Hannah had started to discuss with herself - *Maybe they found the way out and I am stuck here, because I yelled at Amir. I said such horrible things to him.*
+*Did they leave me here? No, no, they wouldn't... would they? I would, I was awful.* - Hannah had started to discuss with herself - *Maybe they found the way out and I am stuck here, because I yelled at Amir. I said such horrible things to him.*
 
-*"Amir?"* - she called. Then she lowered her voice and said - *"I'm sorry. I didn't want to say those things. I am the silly one."*
+*"Amir?"* - she called. Then she lowered her voice and said - *"I'm sorry. I truly am. I didn't think and my mouth just said those things. I am the useless one, perhaps I should be left behind..."*
 
-The walls observed the girl getting increasingly depressed. The walls decided to motivate her by releasing a few pebbles metres away from her. 
+The walls surrounding the girl observed her getting increasingly depressed. The walls decided to provide some incentives to get her unstuck. They released a few pebbles a few metres away from her.
 
-*"Hello? Sam? Amir?"* - she queried followed by her thoughts -  *Of course it was nothing.*
+‘Plop, pluck!’
+
+*"H... Hello? Sam? Amir?"* - she queried followed by her thoughts -  *Of course it was nothing.*
 
 Another ‘plop’ echoed on the walls and reached her.
 
@@ -48,9 +54,9 @@ Another ‘plop’ echoed on the walls and reached her.
 
 ‘Plop, plop, plop!’, echoes called her into action. She sprang up and into a dash trying to find the source of the sound as she continued to call for her companions. A turn left, followed by a long corridor, then two right turns and another turn left.
 
-*"Sam! I swear if you guys don't answer I will punch you so hard!"* - she said aloud, mostly to herself in an attempt to not feel so lonely.
+*"Sam! I swear if you guys are ignoring me I will punch you so hard!"* - she said aloud, mostly to herself in an attempt to not feel so lonely.
 
-*"What did I do? We've been standing here for a while!"* - replied Sam.
+*"What did I do? We've been standing here for a while waiting for you!"* - replied Sam.
 
 *"Sam?"* - queried Hannah doubtfully, not believing the stream of words that reached her senses.
 
@@ -62,11 +68,13 @@ Another ‘plop’ echoed on the walls and reached her.
 
 Hannah followed the echoes of Sam's voice, another turn right and she saw them. Amir sat on the floor, staring at the gate. Sam waved his hands in the air.
 
-*"How did you two got here so quickly?"* - asked Hannah but followed her question with a statement, effectively leaving Sam with the answer in his mouth - *"Is that the gate? It looks gorgeous!"*
+*"How did you two got here so quickly?"* - asked Hannah. The corner of her eye caught the mind-absently Amir which caused her guilt to rush through. She tried to shake it off by following her question with an statement before Sam had a chance to answer - *"Is that the gate? It looks gorgeous!"*
 
 
 
-Hannah got her eyes fixed on the gate; she felt suddenly ashamed of herself when her eyes and Amir's met briefly.
+Hannah got her eyes fixed on the gate; she felt ashamed of herself, she felt much worse when her eyes and Amir's met briefly.
+
+She turned to face the gate.
 
 The corridor framed the gate perfectly. The squared gate would have been missed if it wasn't adorned with eight quartz crystals connected with crystalline lines, there was no relieve or carving done to this door.
 
@@ -74,11 +82,13 @@ Each crystal glowed with its pale blue light.
 
 *"I think this is the gate of the Collector"* - stated Hannah. She waited a few seconds for Amir to interrupt in an attempt of a joke, yet, nothing happened.
 
-*"The gems are organised in the shape of the vase is his constellation. You can see it as the eight stars connected by the lines draws it. I can't see a note on the frame or a sign"* - she added.
+*"Uhm... The gems are organised in the shape of the vase is his constellation. You can see it as the eight stars connected by the lines draws it."* - she added - *"I can't see a note on the frame or a sign."*
 
-*"I know. We checked the gate already, isn't bud?"* - stated Sam looking at Amir. There was no response.
+*"I know. We checked the gate already, isn't bud?"* - stated Sam looking at Amir.
 
-*"In any case, look closer, there are two smaller crystals in there. What are those?"* - said Sam.
+There was no response.
+
+*"In any case, look closer, there are two smaller crystals in there."* - said Sam - *"What are those?"*
 
 *"I think... Uhm... I don't know"* - she replied observing with curiosity the missed detail - *"the constellation doesn't have any these stars in it."*
 

@@ -68,23 +68,31 @@ Sam's flame beat with such force, his entire body moved as his chest glowed. He 
 
 *"It's all good buddy!"* - said Amir beaming with happiness - *"When I saw you jumping like ‘flummm!’ I thought ‘no way!’ And jumped in like ‘swoom!’ And you were like..."*
 
-*"Enough Amir!"* - interrupted Hannah as she noticed Sam filled with stress.
+*"Enough Amir!"* - interrupted Hannah as she noticed Sam filled with stress. Her voice had the edge of resentment towards Amir's insensitivity. She gave him heavy look laced with disapproval caused by his commentary.
 
-Amir felt another look filled with disapprobation and decided it was best to pick up Sam and follow Hannah.
+Amir felt her stress slowing building up but, he wasn't aware what was causing it.
+
+
 
 The path ahead was uneventful, the corridor undulated gently as it curved softly towards the north. They walked several metres more, went past more 'fake' windows as they grew increasingly disoriented. Amir's focus on Sam was interrupted by Hannah running further ahead.
 
 *"There's a gate!"* - she said.
 
-The corridor ended on a almost pure white sandstone gate, decorated with eight gems, resembling a shepherd's crook. The crook's gems gave off a eery pale blue light and the stone around these was sculpted magnificently to highlight the shape drawn by the gems.
+The corridor ended on a almost pure white sandstone gate, decorated with eight gems, resembling a shepherd's crook. The crook's gems gave off an eery pale blue light and the stone around these was sculpted magnificently to highlight the shape drawn by the gems.
 
-*"Father's constellation"* - said Hannah, recognising the pattern.
+Hannah recognised the pattern almost immediately, she had seen it a few times before - *"It's Father's constellation"* - she said.
 
-*"Wait! Who's father? Do you have a father?"* - answered Amir with a hint of anxiety in his voice as he tried to get his messy hair back in a presentable form.
+*"What? Wait! Who's father? Do you have a father?"* - answered Amir with a hint of anxiety in his voice as he tried to get his messy hair back in a presentable form.
 
 *"Not my father, everybody's father"* - she replied in an attempt to clarify, though it backfired; she noticed Amir distancing from her - *"Father is the name of one of the elders."*
 
 *"Ah, phew!"* - said Amir relieved - *"You got me there for a sec!"*
+
+*"I wished you took things a bit more seriously"* - she commented casually, or with the same casual tone as someone would use when they really want you to do it - *"Any how, do you know about the Elders?"*
+
+*"The who?"* - replied Amir.
+
+*"Oh, I see."* - replied Hannah - *"I'll tell you about them at some other time. For now, let's focus on getting out of here."*
 
 Sam ignored part of the conversation, mesmerised by the composition and the lack of texture on the gate. The eight gems were made of quartz tightly compacted into gems with an inner glow giving off the vibe that little stars were captured in it. The grain of the gate was different to the walls, whilst the walls had a roughness to it, the gate was perfectly smooth.
 
@@ -120,11 +128,9 @@ The glowing crook changed colour to a warm golden light as the gate swung open.
 
 *"... seven gems for bread nobody wanted to eat. What a rip off! What a rip off!"* - lamented Amir shaking his head.
 
-Hannah ignored him.
+Hannah tried to ignore him in an attempt to remain civil. She couldn't understand why Amir's flippant personality was irritating her this much; she thought it was best to walk ahead of the boys.
 
-The gate closed behind them, the glowing stars slowly faded away leaving the glassy shape behind.
-
-*"I guess, the maze is one-way only, huh?"* - remarked Hannah.
+Sam turned around just in time to watch the gate closing behind them, the glowing stars slowly faded away leaving the glassy shape behind. His thoughts were brought back to their current reality with Hannah's comment a few steps away - *"I guess, the maze is one-way only, huh?"*
 
 The children's eyes inspected their new environment.
 
@@ -162,4 +168,4 @@ As if commanded, the sand rolling with them clumped together and anchored itself
 
 The children remained on the floor, panting and tired.
 
-The sound of balls of sand exploding echoed against the walls, as a reminder to the children, about what would happen if they have hurried towards the vast emptiness.
+The sound of balls of sand exploding echoed against the walls, it was a reminder to the children about what would happen if they have hurried towards the vast emptiness.
