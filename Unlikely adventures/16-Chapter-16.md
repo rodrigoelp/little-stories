@@ -68,9 +68,9 @@ Sam's flame beat with such force, his entire body moved as his chest glowed. He 
 
 *"It's all good buddy!"* - said Amir beaming with happiness - *"When I saw you jumping like ‘flummm!’ I thought ‘no way!’ And jumped in like ‘swoom!’ And you were like..."*
 
-*"Enough Amir!"* - interrupted Hannah as she noticed Sam filled with stress. Her voice had the edge of resentment towards Amir's insensitivity. She gave him heavy look laced with disapproval caused by his commentary.
+*"Enough Amir!"* - interrupted Hannah as she noticed Sam filled with stress. Her voice had the edge of resentment towards Amir's insensitivity. She gave him a heavy look laced with disapproval caused by his commentary.
 
-Amir felt her stress slowing building up but, he wasn't aware what was causing it.
+Amir felt her stress slowing building up, but he wasn't aware what was causing it.
 
 
 

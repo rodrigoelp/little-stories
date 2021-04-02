@@ -6,7 +6,7 @@ Puffs, huffs, puffed huffs and huffed puffs echoed down the slide, where the thr
 
 Unfortunately, as things go, there are times when it is best to remain silent-and-sad than positive-and-cheerful. This was one of those opportunities, which Amir didn't take.
 
-The words bounced against Hannah's mind, stress and frustration. All of it clumped together like a fluffy snow ball which would bounce off an ice sheet about to start an avalanche at the edge of a peak around the crater of a volcano that needed a little push to erupt. Whatever it was brewing inside of her mixed with the tiny locked box containing her temper and she... erupted.
+The words bounced against Hannah's mind, stress and frustration. All of it clumped together like a fluffy snow ball which would bounce off an already unstable ice sheet about to start an avalanche at the edge of a peak around the crater of a volcano that needed a teeny tiny push to erupt. Whatever it was brewing inside of her mixed with the tiny locked box containing her temper and she... erupted.
 
 *"Fun? FUN? Is everything a joke to you?"* - she said increasingly more upset.
 
