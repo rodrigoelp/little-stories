@@ -2,7 +2,7 @@
 
 The sound of thousands of gears flooded the air with its furious spinning as it thundered behind the children whilst the Smith's gate closed shut, Hannah looked into yet another corridor and could not help it but to feel exhausted. The corridors seemed to be never ending.
 
-*"I feel like this is going forever! Where should we go now?"* - she said staring at yet another bifurcation.
+*"I feel like this is going on forever! Where should we go now?"* - she said staring at yet another bifurcation.
 
 *"Left, we should go to the left."* - said Sam to his frustrated leader.
 
@@ -14,7 +14,7 @@ Hannah's gaze wondered across the walls with spider decorations spaced every few
 
 He provided a convincing argument by shruging.
 
-She walked back, to the Smith's gate and stared at the walls. The tiny sparse decoration hinted the direction she oath to follow.
+She walked back, to the Smith's gate and stared at the walls. The tiny sparse decoration hinted the direction she ought to follow.
 
 She lifted her hand to her face and tightly pinched her nose bridge whilst keeping her eyes closed - *"And you kept this information secret because?"*
 
@@ -56,7 +56,7 @@ The gate to their right was decorated with solar allegoric sculptures. A sun bea
 
 The gate to their left had a moon casting soft light drew lines as if the moon projected the softest glow on a field covered by the puffiest snow ever. The only theme in common between the two gates were the nine gems trapped in the shape of their respective celestial body. Thin lines connected the gems in the shape of crossed paddles, symbol of the Twin's rivalry. In front of each gate, a gravestone with an inscription laid in plain sight.
 
-*"The Twins"* - commented Hannah as she got closer to the gravestone
+*"The Twins"* - commented Hannah as she got closer to the gravestone.
 
 *"Stop competing with others and compete against yourself."* - she read.
 
@@ -122,21 +122,21 @@ She looked at the figure on the floor and said - *"How do we know if the tiles a
 
 Amir grabbed a fist full of sand and chucked it on one of the tiles. The bobbing continued as if nothing had happened.
 
-*"That seems safe..."* - began to reply Amir, but, he was interrupted by a loud crack as the tile fractured into tiny pieces. A few seconds later, collapsed into the abyss, never to be seen again - *"... as long as we run as fast as possible."*
+*"That seems safe..."* - began to reply Amir, but, he was interrupted by a loud crack as the tile fractured into tiny pieces. A few seconds later, it collapsed into the abyss, never to be seen again - *"... as long as we run as fast as possible."*
 
 *"We better be quick"* - said Hannah analytically.
 
-*"(Gulp!!)"* - accurately described Sam - *"Ok, here I go."*
+*"(Gulp!!)"* - described Sam accurately - *"Ok, here I go."*
 
-Sam took a deep breath and prepared himself for a long run. He exhaled and fixated his eyes on the dark shape that was the next gate and launched forward. Jumped onto the first tile and the feeling of the tile wasn't too bad, it felt firm, though he didn't want to wait for the tile to break and moved his legs to jump to the next tile. Two, three tiles behind, everything was going great and he heard the loud ‘CRACK’; he jumped to the next one.
+Sam took a deep breath and prepared himself for a long run. He exhaled and fixated his eyes on the dark shape that was the next gate and launched forward. He jumped onto the first tile and the feeling of the tile wasn't too bad, it felt firm and stable, though he didn't want to wait for the tile to break and moved his legs to jump to the next tile. Two, three tiles behind, everything was going great and he heard the loud ‘CRACK’; he jumped to the next one.
 
 *"Keep going!"* - yelled Amir.
 
-Sam had no time to watch behind him, jumped another four, then another ten; behind him tiles continued to make loud cracking noises. He was flying through the corridor, rhetorically. By now, he had lost the count of how many tiles he had left behind - *Not too bad* - he thought feeling confidence rushing in his body.
+Sam had no time to watch behind him, jumped another four, then another ten; behind him tiles continued to make loud cracking noises. He was flying through the corridor, figuratively. By now, he had lost the count of how many tiles he had left behind - *Not too bad* - he thought feeling confidence rushing in his body.
 
 The problem of thinking *‘Oh, I though this would be harder’* is, the creator of the challenge might have a twisted sense of humour and gets you right when you feel safe; this just happened to Sam.
 
-As he reached the centre of the corridor, the walls grew tiny cannons which shot pebbles in Sam's direction, some of them hit him bluntly on his face, others on the back, chest and arms. He tried to dodge the oncoming projectiles but, his progress slowed down.
+As he reached the centre of the corridor, the walls grew tiny cannons which shot pebbles in Sam's direction, some of them hit him bluntly on his face, others on the back, chest and arms. He tried to dodge the oncoming projectiles, but his progress slowed down.
 
 CRACK! CRACK!
 
@@ -194,23 +194,23 @@ The walls were trying to recover from the surprise, they were caught off guard b
 
 *"Shut up or I'll make you shut up!"* - yelled back Hannah recovering from a blow to her left ear.
 
-Sam learnt at that precise moment a valuable lesson. When a pissed off woman tells you to shut up, you obey instantly.
+Sam learnt at that precise moment a valuable lesson. When someone pissed off tells you to shut up, you obey instantly.
 
 
 
-The barrage had become heavier, or so Hannah felt, the stones were specifically targeted to her head or her legs. The walls seem to know where to hit to make her trip. She was getting closer to the end. 
+The barrage had become heavier, or so Hannah felt, the stones were specifically targeted to her head or her legs. The walls seemed to know where to hit to make her trip. She was getting closer to the end. 
 
-She extended her arms and jumped before stepping on the last row; Sam knew she was going to be a bit shy of reaching out the edge and he stretched himself; reached for her hand and pulling her in.
+She extended her arms and jumped before stepping on the last row; Sam knew she was going to be a bit shy of reaching out the edge and he stretched himself; reached for her hand and pulled her in.
 
 *"Hey, we are safe!"* - said Sam relieved and ecstatic squeezing a little too hard Hannah's hand.
 
-*"Yeeeaaaaaaaouchss! Thanks Sam!"* - replied Hannah releasing her hand from an enthusiastic bear grip. It was Amir's time now, she got nervous immediately.
+*"Yeeeaaaaaaaouchss! Thanks Sam!"* - replied Hannah releasing her hand from the enthusiastic bear grip. It was Amir's time now, she got nervous immediately.
 
-Amir felt relieved once Hannah was out of harms way and without thinking about it twice, he ran towards the few tiles left. Metaphorically speaking, he moved through the challenge as a hot knife cuts through butter: swiftly. Both Hannah and Sam observed Amir jumping from one tile to another and at times stepping on the wall to reach two or three rows ahead when the tiles where completely across the opposite side.
+Amir felt relieved once Hannah was out of harm's way and without thinking about it twice, he ran towards the few tiles left. Metaphorically speaking, he moved through the challenge as a hot knife cuts through butter: swiftly. Both Hannah and Sam observed Amir jumping from one tile to another and at times stepping on the wall to reach two or three rows ahead when the tiles where completely across the opposite side.
 
 *Definitely, he must have a mountain goat as his ancestors* - thought Sam.
 
-Hannah remained silent but cheeky smirk had appeared on her face as she observed Amir athletic display. Her mind said - *Maa! Maa!* - perhaps she sent a mental wink or two.
+Hannah remained silent but a cheeky smirk had appeared on her face as she observed Amir athletic display. Her mind said - *Maa! Maa!* - perhaps she sent a mental wink or two.
 
 Then Amir reached the most difficult section and pebbles were shot on every direction
 
@@ -218,19 +218,19 @@ Then Amir reached the most difficult section and pebbles were shot on every dire
 
 *"Come on buddy! You can do it!"* - yelled Sam, though his thoughts were fixed in - *Do not fall, do not fall, do not fall!*
 
- Hannah was fixated, observing Amir feats - *Maa maa maaaa!* - said her mind.
+ Hannah was fixated, observing Amir's feats - *Maa maa maaaa!* - said her mind.
 
-Amir continued rushing through, another step on the wall and he spun mid air landing on the opposite side, from which he jumped rolling in the air as he skipped three rows of tiles. One final pushed got him over the edge on which Hannah and Sam watched totally mesmerised.
+Amir continued rushing through, another step on the wall and he spun mid air landing on the opposite side, from which he jumped rolling in the air as he skipped three rows of tiles. One final push got him over the edge on which Hannah and Sam watched totally mesmerised.
 
 A rain of pebbles, leftover from the attack on Amir, shook them up awake from their trance.
 
 *"Blooby bell... I'm babbered"* - said Amir in an attempt of human communication, exhaustion filled every breath he took.
 
-Sam was utterly impressed, Amir raced through last part almost effortlessly. He could see how strong was the attack on Amir, most of his face was bright red and started to swell.
+Sam was utterly impressed, Amir raced through the last part almost effortlessly. He could see how strong the attack was on Amir, most of his face was bright red and started to swell.
 
 *"Are you ok?"* - asked Hannah. She held him like a fan would hold a very attractive super star, tightly and closely.
 
-*"Beah, Ab bood. Too bany bebbles"* - complained Amir. He brain caught up with the pain of the last events and the unforgiving dexterity of the walls - *"banks bor basking. Eberybing burts!"* 
+*"Beah, Ab bood. Too bany bebbles"* - complained Amir. His brain caught up with the pain of the last events and the unforgiving dexterity of the walls - *"banks bor basking. Eberybing burts!"* 
 
 Hannah softly touched his cheeks, her heart was beating hard. She wanted to do more than just hug him.
 
@@ -238,7 +238,7 @@ Hannah softly touched his cheeks, her heart was beating hard. She wanted to do m
 
 Amir looked past Hannah's shoulder, a large gate made of black stone stood in front of them. Well, he could say the gate stood there, the hinges were dislodged out of its socket, the gate was in shambles.
 
-Hannah gaze travelled from Amir to the black gate in front of her - *"The Warrior's gate"* - she added without any other explanation. Her fingers touched the stone, it felt cold and very solid, almost reinforced. She continued inspecting the gate, it looked heavy too. Its stone was polished to perfection, she could see a dark reflection of herself staring back, sculpted in the middle of it a large shield with a lance crossing a sword.
+Hannah's gaze travelled from Amir to the black gate in front of her - *"The Warrior's gate"* - she added without any other explanation. Her fingers touched the stone, it felt cold and very solid, almost reinforced. She continued inspecting the gate, it looked heavy too. Its stone was polished to perfection, she could see a dark reflection of herself staring back, sculpted in the middle of it a large shield with a lance crossing a sword.
 
 *"What could have done this? It tore it out of its place!"* - asked Sam.
 
