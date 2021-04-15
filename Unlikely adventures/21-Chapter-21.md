@@ -1,18 +1,16 @@
 # One's reflection
 
-Sam remained behind as he stared to the giant black gate bent, filled with deep gushes of, what it seemed to be, the largest blade ever used - *"Are you sure there's no puzzle, riddle or challenge we need to solve?"* - he asked to Hannah, hypnotised by the damaged object.
+Sam remained behind as he stared to the giant black gate, bend and filled with deep gushes of, what it seemed to be, the largest blade ever used - *"Are you sure there's no puzzle, riddle or challenge we need to solve?"* - he asked to Hannah, hypnotised by the damaged object.
 
-*"Look at it Sam, it is destroyed. Even the gems are gone. Whatever it could have been there to challenge us it is missing."* - replied Hannah. She struggled to keep walking in a straight line with Amir weighting her down.
+*"Look at it Sam, it is destroyed. Even the gems are gone. Whatever it could have been there to challenge us, is missing."* - replied Hannah. She struggled to keep walking in a straight line with Amir weighting her down.
 
 Sam checked the sculpted shield in the middle of the twisted gate, seven holes marked the location where gems should have been emitting the soft pale blue glow.
 
-Sam felt chills running down his spine just thinking about the creature or event that caused this mayhem, it was disturbing and unpleasant to imagine it.
-
-Sam's eyes travelled from the black contorted mess to the last known place his brain connected with his friends. Sam stopped at the beginning of the alley, completely alone.
+Sam felt chills running down his spine just thinking about the creature or event that caused this mayhem, it was disturbing and unpleasant to imagine it. His eyes travelled from the black contorted mess to the last known place his brain remembered the location of his friends. Sam stopped at the beginning of the alley, completely alone.
 
 *"Hannah?"* - he asked with a hint of terror and a sprinkle of horror.
 
-*"Just walk ahead Sam, ignore it and walk past it."* - suggested Hannah to Sam.
+*"Just walk ahead Sam, ignore it and walk past it."* - suggested Hannah's voice to Sam.
 
 Sam stood immobile a few seconds processing Hannah's words. He mustered the courage to walk down the alley between the black gate behind him and the unknown beyond.
 
@@ -20,7 +18,7 @@ The alley, as Sam could describe it, seemed to be disconnected from the rest of 
 
 Somehow, the mysterious source of illumination for the entire maze had trouble reaching to the inner parts of the alley; just a few rays of light barely managed to bounce off a few areas on the wall, the other areas were either covered in stains or it revealed the damage done to its surface; it casted eerie shadows on the ground, Sam couldn't understand at first what he saw on it.
 
-His eyes wrestled to adjust to the dimmed area and make up features or the contour of the things out of the actual shadows. The alley's flood was covered in stains and splatter patterns.
+His eyes wrestled to adjust to the dimmed area and make up features or the contour of the things out of the actual shadows. The alley's floor was covered in stains and splatter patterns.
 
 His eyes tuned, as eyes normally would when you spend enough time in the darkness, to see different shades of black. He could see the difference between shadows, the splattered pattern and a large collection of decayed bones and skulls that littered the ground. It was gruesome; it made him feel sick.
 
@@ -32,13 +30,13 @@ His brain insisted, the knees replied “*But, are you seeing this? No! I won't 
 
 His brain made the compelling case that, whatever it happened to them may have been caused by staying in the alley for too long. The message finally went through.
 
-He began his walk slowly, but, as things would go when a child walk into a scary place, at the tiniest creak or crunching sound, he darted towards the end of the alley with his imagination betrayed him: it projected images of bones dancing to a hidden tune, composing an army of undead about to chased him.
+He began his walk slowly, but, as things would go when a child walks into a scary place, at the tiniest creak or crunching sound, he darted towards the end of the alley as his imagination betrayed him: it projected images of bones dancing to a hidden tune, composing an army of undead about to chase him.
 
-Sam jumped out of the alley and landed on a circular room leaving behind the entrance to the room and a gate in front of him. Sam tried to walk further away from the scary alley and bumped against Amir, who remained on the floor with his face totally bruised and swollen.
+Sam jumped out of the alley and landed in a circular room leaving behind the entrance to the room and a gate in front of him. Sam tried to walk further away from the scary alley and bumped against Amir, who remained on the floor with his face totally bruised and swollen.
 
-Amir looked calmed, though Sam would have imagined that he remained calmed as he could not see the creepy place they were standing on. Amir barely moved to reveal Hannah, who had collapsed completely exhausted after carrying Amir out of the alley.
+Amir looked serene, though Sam would have imagined that he remained calm as he could not see the creepy place they were standing on. Amir barely moved to reveal Hannah, who had collapsed completely exhausted after carrying Amir out of the alley.
 
-Sam looked back expecting the ghastly images to become reality, nothing came out from the alley thought, Sam noticed, the entrance to the room had the dark stains spreading outwards, like tentacles would sprout out of a bottle if you assume you placed a very pissed off octopus inside of it. The dark tentacles came to an abrupt end near the middle of the room, there was some sort of magical force that protected it from the incoming creature.
+Sam looked back expecting the ghastly images to become reality, but nothing came out from the alley thought, Sam noticed, the entrance to the room had dark stains spreading outwards, like tentacles would sprout out of a bottle if you assume you placed a very pissed off octopus inside of it. The dark tentacles came to an abrupt end near the middle of the room, there was some sort of magical force that protected it from the incoming creature.
 
 *"Where are we?"* - he asked still fixated on the dark pattern.
 
@@ -50,11 +48,11 @@ Sam looked back expecting the ghastly images to become reality, nothing came out
 
 *"The last elder?"* - asked Sam in an attempt to follow Hannah's conversation.
 
-Hannah nodded whilst she moved her arms to gently release Amir on his knees then, she walked to the gate to observe it up close.
+Hannah nodded whilst she moved her arms to gently release Amir on his knees. Then, she walked to the gate to observe it up close.
 
 
 
-The gate was the detailed rendition of a library, there was no single space in the gate in which you couldn't see a book spine with various titles written on it such as: ‘Commuters of the lost Ark’, ‘Rise and fall of wonderful civilisations’, ‘Deadly Sins’, ‘Twenty-thousand leagues above the clouds’, ‘A guide for those expecting the unexpected’, ‘Lord of the annular metallic loops’, ‘Thief of time’, ‘Cats that may be dead or alive when placed in boxes, for dummies’, among many other titles.
+The gate was the detailed rendition of a library, there was no single space in the gate in which you couldn't see the surface covered with book spines with various titles written on it such as: ‘Commuters of the lost Ark’, ‘Rise and fall of wonderful civilisations’, ‘Deadly Sins’, ‘Twenty-thousand leagues above the clouds’, ‘A guide for those expecting the unexpected’, ‘Lord of the annular metallic loops’, ‘Thief of time’, ‘Cats that may be dead or alive when placed in boxes, for dummies’, among many other titles.
 
 The shelves of books covered every single inch of the gate, its centre was the one exception. In there, the sculpture of the Wise stood straight, her head slightly bowed down, her eyes closed and on her hands rested a lantern with six gems at each corner of the elongated hexagon encasing a crystal flame. The lantern itself had a surprising amount of detail.
 
@@ -64,7 +62,7 @@ Hannah's eyes browsed every book cover; she hoped it would make sense and tell h
 
 Sam eyes travelled around the room, with the exception of the gate and the scary alley behind them, there was nothing else - *"Not really, no."*
 
-Hannah's eyes got drawn to a book titled ‘What to do if you are left behind’, she wished she could read the contents of the book. Her hand hovered a second or two above it, she decided to continue looking around, eventually setting her analytical mind on the lantern the Wise was holding. It had engraved in between the gems the words:
+Hannah's eyes got drawn to a book titled ‘What to do if you are left behind’, she wished she could read the contents of the book. Her hand hovered a second or two above it, she decided to continue looking around, eventually setting her analytical mind on the lantern the Wise was holding. She read the message hidden between the gems:
 
 
 
@@ -110,7 +108,7 @@ She knew that every new child appeared in Dawn, which used to be overseen and gu
 
 The Prairie was protected by the Collector, the gentle giant fond of nature and live.
 
-The Hidden Forest was protected by the Smith, a fearsome hardworking women which could bent any element to her will.
+The Hidden Forest was protected by the Smith, a fearsome hardworking woman which could bent any element to her will.
 
 The Valley of Triumph had the Twins. They competed day and night, they never took a moment to rest.
 
@@ -136,7 +134,7 @@ The sound of crushing bones flooded the alley barely visible on the bookcase cov
 
 He remained silent watching the monstrous critter approaching; terror flooded each fibre of his being. He turned to look at Hannah just before the spider pounced on him sticking its fangs deep in his neck. Black veins grew from Sam's neck, his face showed pain. The black veins slowly covered his entire body, paralysing him. A moment after, Sam was nothing more than a black statue resting on the spider web. The spider began threading silk around his body, making a cocoon.
 
-The brief instants of silence after the attack were broken by Hannah's sobs.
+The brief instants of silence after the attack were broken by Hannah's gasps; shock and sorrow had made her struggle for air.
 
 *"Amma? Bhat-appemd?"* - said Amir. He tried to understand the world around him - *"Pam?"* 
 
@@ -164,11 +162,11 @@ Hannah wiped her face in an attempt to think clearly, her eyes rested on one of 
 
 The two golden lights moved across the room and rested on Hannah - *Correct! Second question: Who am I?*
 
-Hannah felt her flame sunk deep on her chest. She could imagine what would happen to Amir if she said something silly. She followed her thoughts - *I feel tempted to state the obvious, but, it might be a trap.*
+Hannah felt her flame sunk deep on her chest. She could imagine what would happen to Amir if she said something silly. She followed her thoughts - *I feel tempted to state the obvious, but it might be a trap.*
 
 Hannah scrapped the bottom of her brain in an attempt to identify anything of the statue in front of her.
 
-The black spider moved gently on the threads of the web, leaving a silk covered lump that Hannah assumed it was Sam's body. The spider was making its way towards Amir.
+The black spider moved gently on the threads of the web, leaving a silk covered lump that Hannah's imagination assumed it was Sam's body, her believes wanted to have a different assumption. She felt totally overwhelmed,  her mind tried to follow all the recent events and the spider threw a new one to the stream when it began making its way towards Amir.
 
 *Answer me, child. Who am I?* - said the voice projected from the walls.
 
@@ -186,11 +184,11 @@ The spider had positioned itself behind the unprotected Amir, who remained quiet
 
 The statue of the Wise froze onsite, the two glowing orbs disappeared from its face. The statue released the lantern from its hands, tumbling down before it exploded as soon as it landed on the ground, the dust disappeared between the fibres of the spiderweb. Then the statue itself crumbled into a cloud of fine particles that vanished in the thin air.
 
-Hannah turned around to face the black spider, it was right above Amir, its two frontal legs suspended in the middle of the air. It had a menacing stance. It became more menacing when eight glowing golden orbs signal the position of its eyes peering at Hannah.
+Hannah turned around to face the black spider, it was right above Amir, its two frontal legs suspended in the middle of the air. It had a menacing stance. It became more menacing when eight glowing golden orbs signalling the position of its eyes peering at Hannah.
 
 *Correct again!* - replied the spider. Its voice wasn't masked by the room anymore, it came from the spider itself - *I am the owner of the maze. The keeper of knowledge and devourer of lost souls. I am the judge of your future.*
 
-*"I answered correctly just now, give me Sam back!"* - said Hannah, her mind had become unstable filled with emotions.
+*"I answered correctly just now, give me Sam back!"* - said Hannah. Her judgement had become clouded with her emotions and stress.
 
 *HA! You have quite an entitled personality. But you do not make the rules here.* - said the spider with a hint of petulance - *Last question! What is your biggest fault?*
 
@@ -204,15 +202,15 @@ Hannah tried to analyse the question - *of course I know myself* - she thought i
 
 The spider remained silent an instant, its eight glowing orbs fixed on Hannah.
 
-To Hannah, the next few instants felt like an eternity to Hannah. She saw the black spider descending on Amir, burying her fangs deep in the powerless body; dark veins spread from the fangs swallowing whole Amir's body. The spider had turned Amir into another black statue.
+To Hannah, the next few instants felt like an eternity. She saw the black spider descending on Amir, burying her fangs deep in the powerless body; dark veins spread from the fangs swallowing whole Amir's body. The spider had turned Amir into another black statue.
 
-Hannah felt like her legs' bones had suddenly vanished, gravity did its job and she dropped on the ground. Tears rushing down her face.
+Hannah felt like her legs' bones had suddenly vanished, gravity did its job and she dropped on the ground. A stream of tears rushed down her face.
 
-*Wrong again little one. You are down to the last chance you have!* - said the spider, casting a wrap around Amir's frozen body.
+*Wrong again little one. You are down to the last chance you have!* - said the spider, wrapping Amir's frozen body with a thick layer of pure white silk.
 
-Hannah felt so much regret, she should have enjoyed more Amir's nuances, his almost inexhaustible sense of humour in adversity, his energy, his loving persona. She felt so much guilt, she let Sam and Amir down. She felt alone once more, like she had felt before she met the pair of friends.
+There was an Amir sized hole in Hannah's mind and heart. The little reason fighting to take control told her she should have enjoyed more of Amir's nuances, his almost inexhaustible sense of humour in adversity, his energy, his loving persona. She felt so much guilt, she let Sam and Amir down. She felt alone once more, like she had felt before she met the pair of friends. Hannah's anguish bounced back on her, turning some of the pain into regret and agony.
 
-The stream of sentiments and tears could not be stopped, she just laid on the floor sobbing.
+The stream of sentiments and tears could not be stopped, she just laid on the floor, collapsed in a sobbing little girl.
 
 *Have you given up?* - said the spider moving closer to Hannah.
 
@@ -220,11 +218,11 @@ Hannah couldn't deviate her eyes towards the spider, her eyes were filled with t
 
 *"Do what you must"* - said Hannah in between sobs - *"I thought, they needed me. I was so stupid, I needed them more."*
 
-*Well child, you won't be lonely any more. You'll have my company for eternity.* - replied the spider taking its position in front of Hannah dwindled figure. Its fangs rubbed against each other in anticipation for the attack.
+*Well child, you won't be lonely any more. You'll have my company for eternity.* - replied the spider taking its position in front of Hannah's dwindled figure. Its fangs rubbed against each other in anticipation of the attack.
 
 *"I was too proud to recognise what I had"* - said Hannah.
 
-The spider fangs stopped their motion - *You what?*
+The spider fangs froze in place - *You what?*
 
 *"I was too proud! That was my biggest flaw. I was stupid and proud and I couldn't see it! I lost all my friends before and it happened once again... I am a stupid proud fool."* - said Hannah, she continued crying profusely.
 
@@ -236,19 +234,21 @@ A muffled sound of a beating heart shook the still spider body. A thud from with
 
 She pushed herself as far away as she could from the critter, Hannah's world had stopped making sense since the spider attacked Amir.
 
-A loud crack made just jolt on the spot. A pair of arms reached out from the spider's torso, followed by the womanly shape of the spirit, it was the lady wearing a spider mask, she rose from her spidery husk - *It is hard to recognise those characteristics in ourselves that cause us pain. With your newly gained knowledge I expect you to treat others as equals, to consult your doubts and fears, to follow the virtue of humility.*
+A loud crack made her jolt on the spot. A pair of arms reached out from the spider's torso, followed by the womanly shape of the spirit, it was the lady wearing a spider mask; she rose from her spidery husk - *It is hard to recognise those characteristics in ourselves that cause us pain. With your newly gained knowledge I expect you to treat others as equals, to consult your doubts and fears, to follow the virtue of humility.*
 
-The spirit extended her hand to Hannah, it contained a yellow beating flame.
+The spirit extended her hand to Hannah. It contained a yellow beating flame.
 
 *Take it. You are now a vessel of knowledge.* - said the spirit.
 
-Hannah understood the trial was over, she wanted to feel relief but her heart ached - *"What good is this now? I am alone again on this journey. I betrayed and sacrificed a good friend. I may have lost someone I cared about deeply..."* - tears streamed down her face - *"I knew him for a short while but, I thought he was the love of my life..."*
+Hannah understood the trial was over, she wanted to feel relief but her heavy heart ached - *"What good is this now? I am alone again on this journey. I betrayed Sam; sacrificed him for my selfish reasons."*
 
-*"Your what now?"* - said Amir's voice from behind the empty spider husk.
+She took a deep breath in an attempt to calm her self, her voice broke when Amir popped in her mind - *" I have lost someone I cared about deeply..."* - tears streamed down her face - *"I knew him for a short while but, I thought he may have been the love of my life..."*
 
-The spider lady smiled at Hannah and said - *Now you are true to yourself and true others.*
+*"Who's your what now?"* - said Amir's voice from behind the empty spider husk.
 
-*"I... I wonder if I should leave the room and go back to the maze. You know, give you some privacy!"* - said Sam with a hint of humour in his voice as he popped his face from around the legs of the empty spider.
+The spider lady smiled at Hannah and said - *Now you are true to yourself and true to others.*
+
+*"I... I wonder if I should leave the room and go back to the maze. You know, give you some privacy!"* - said Sam with a hint of humour in his voice as his face popped from around the legs of the empty spider.
 
 *"Huh? What is happening?"* - replied a confused Hannah. Her face started to burn red after she saw Amir blushed face pop into her view.
 
@@ -256,11 +256,11 @@ The spider lady smiled at Hannah and said - *Now you are true to yourself and tr
 
 Amir walked closer to Hannah and said shyly - *"You love me?"*
 
-Hannah couldn't see into his eyes, instead she looked at his feet softly nodding. She felt naked under his inquisitive gaze - *"Never-ever-ever leave me alone, ok?"*
+Hannah couldn't meet his eyes, instead she looked at his feet softly nodding. She felt naked under his inquisitive gaze - *"Never-ever-ever leave me alone, ok?"*
 
 Amir was shocked, his face told Sam the thought ‘What should I do now?’ travelled his mind, but before Amir could decide what to do, Hannah jumped to hug him and squeezed tightly. He held her back, inundated with happiness. He mumbled to her ear - *"Ok, I won't."* - It was barely audible to Sam.
 
-*"Hem! Ahem hem!"* - said Sam clearing his throat - *"Very moving and all but, could we do this outside? I am tired of this maze."*
+*"Hem! Ahem hem!"* - said Sam clearing his throat - *"Very moving and all but, could we do this outside? I had enough of this maze."*
 
 Hannah squeezed the yellow light between her fingers. It burst enveloping the children in warmth and a peacefully melting feeling. Hannah blinked reflexively the instant the flash grew, when she opened it again, she laid on the floor next to Amir, holding his hand, surrounded by the flickering light of candles dancing to an inaudible tune. The children had returned to the cave.
 
