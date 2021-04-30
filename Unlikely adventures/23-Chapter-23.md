@@ -1,8 +1,8 @@
 # Palpitations
 
-Once more, the world was spinning in Amir's head. The coldish soft sand and flickering shadows gently dancing on the ceiling told him they had returned to room buried deep in his memories. The Earth trial seemed to have last an eternity.
+Once more, the world was spinning in Amir's head. The coldish soft sand and flickering shadows gently dancing on the ceiling told him they had returned to room buried deep in his memories. The Earth trial seemed to have lasted an eternity.
 
-His eyes travelled from the playful figures involved in the silent waltz to the rocky wall and eventually, to the statue of a young woman sitting with her legs crossed; she wore a spider mask decorated with eight crystal eyes fixated on him. He wasn't sure if all eight eyes were fixed on him, maybe two or three at least would be checking him out, he thought. As things with Amir would go, he started to wonder if spiders could suffer strabismus.
+His eyes travelled from the playful figures involved in the silent waltz to the rocky wall and eventually, to the statue of a young woman sitting with her legs crossed; she wore a spider mask decorated with eight crystal eyes fixated on him. He wasn't sure if all eight eyes were fixed on him, maybe two or three at least would be checking him out, he thought. As things with Amir would go, he started to wonder if spiders could suffer of strabismus.
 
 *"Are you Ok?"* - said Hannah's soft voice next to him.
 
@@ -22,7 +22,7 @@ He wanted to move his arm, in an attempt to lean on it to look cooler, but he co
 
 Sam rolled his eyes and stood up, walking towards the entrance of the room.
 
-*"Where are you going buddy?"* - asked Amir
+*"Where are you going buddy?"* - asked Amir.
 
  *"I'll go and talk to the spectre right now."* - replied Sam.
 
@@ -34,7 +34,7 @@ Sam stopped by the entrance as if he weighted the benefits and the cons of the i
 
 *"It's Ok. He will be Ok"* - she replied. Hannah felt the awkwardness raising once more but she didn't want to go back to the meaningless questions. She knew Sam was right, the conversation was pretty dull - *"Hey, about what happened towards the end..."*
 
-Amir felt a little timid towards Hannah sudden assertiveness - *"You mean the spider lady biting Sam? Or biting me? The casual confession of your intense feelings towards me? You getting the flame the spider lady gave you? You gotta be a little more specific..."* 
+Amir felt a little timid towards Hannah's sudden assertiveness - *"You mean the spider lady biting Sam? Or biting me? The casual confession of your intense feelings towards me? You getting the flame the spider lady gave you? You gotta be a little more specific..."* 
 
 *"The confession part..."* - Hannah's assertiveness seemed to have disappeared - *"How do you feel about it?"*
 
@@ -42,7 +42,7 @@ Amir felt a little timid towards Hannah sudden assertiveness - *"You mean the sp
 
 Hannah noticed Amir's nervousness and she really tried to understand the string of words but the content was so diffuse and confusing that she just replied with - *"Not really. No."*
 
-Amir felt the pressure of her stare, for some reason his mouth felt incredibly dry - *"Is there a little bit a water here?"*
+Amir felt the pressure of her stare, for some reason his mouth felt incredibly dry - *"Is there a sip of water in here?"*
 
 *"Maybe outside but, could you give me a clearer answer?"* - replied Hannah feeling her flame sinking deeper into her chest. A little hint of pain made her release Amir's hand as she draw it closer to her body. She looked somewhat smaller and fragile than ever before.
 

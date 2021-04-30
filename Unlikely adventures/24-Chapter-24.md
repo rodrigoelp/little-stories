@@ -4,11 +4,11 @@ Behind the temple, hidden from the view of most of the spectators, Father built 
 
 Most visitors to the pond used to watch the waters from afar out of respect to Father's love to his sacred area. However, in this occasion, there was a little girl with braided hair over her shoulders and pink wings decorated with red laces and long red feathers sitting at the edge of the pond. She had her head leaned back and her eyes closed, getting soaked in the never-ending morning sunshine. Her feet were submerged in the pond as the lilies swayed rhythmically with the ripples bouncing back and forth. In fact, every single lily had found a resting place near the edge of the pond.
 
-The wind spiralled gracefully around Yule's ear, curving delicately the edges of her hair. She opened her eyes and filled her lungs with the sweet smell of the flowers around her, which remained strong despite each flower withdrawn into its bulb shape.
+The wind spiralled gracefully around Yule's ear, curving delicately the edges of her hair. She opened her eyes and filled her lungs with the sweet smell of the flowers around her, which remained strong despite each flower being withdrawn into its bulb shape.
 
-*"I like this. Sitting out understand the sun, the fish playing with my toes as I splash a little bit here and there"* - she said.
+*"I like this. Sitting out under the sun, the fish playing with my toes as I splash a little bit here and there"* - she said.
 
-*"Some things never change then. You have always liked the hidden music of the realms"* - replied Virgil hovering above the centre of the pond. He looked down towards the water and the end of his robe - *"I know I could get my feet wet. If only the water would allow me to touch me."*
+*"Some things never change then. You have always liked the hidden music of the realms"* - replied Virgil hovering above the centre of the pond. He looked down towards the water and the end of his robe - *"I know I could get my feet wet. If only the water would allow me to touch it."*
 
 *"Well, you are a scary figure"* - replied Yule - *"I guess the water can see through your disguise."*
 
@@ -32,4 +32,4 @@ Virgil remained silent.
 
 *"Ah, I see."* - she stated - *"In that case, do not let me detain you."*
 
-After a few moments, Yule continued humming to the tune of the wind on her ears as the wind playfully continued caressing her hair, like a mother would to her daughter. Little particles of pollen travelled from the pond, carrying the sweet smell of the flowers. All the lilies had opened their petals to release the moisture and pollen to their surrounding. It was a clear sign to Yule that Virgil was gone. 
+After a few moments, Yule continued humming to the tune of the wind on her ears as the wind playfully continued caressing her hair, like a mother would to her daughter. Little particles of pollen travelled from the pond, carrying the sweet smell of the flowers. All the lilies had opened their petals to release its moisture and aroma to their surrounding. It was a clear sign to Yule that Virgil was gone. 
