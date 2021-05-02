@@ -30,7 +30,7 @@ The spectral figure glided away from the monolith, revealing a female shape wear
 
 *I see you have finished the Earth trial. You are half way there!* - said the spectre encouragingly as she opened her arm, gesturing to something on the ground to stand up - *Didn't you have friends?* - she added casually to the conversation. The sand below her feet danced to compose six benches of intricate finesse and patterns indistinguishable from where Sam stood up.
 
-*"Ye... yes? There are coming, will be here at any second!"* - he added. He had inflated his chest in an attempt to look more menacing to the spectre in the shadows, though he did it in an attempt to find his courage back.
+*"Ye... yes? They are coming, will be here at any second!"* - he added. He had inflated his chest in an attempt to look more menacing to the spectre in the shadows, though he did it in an attempt to find his courage back.
 
 *Good. We are waiting!* - whispered another voice on Sam's left ear.
 
@@ -74,7 +74,7 @@ Sam immediately obeyed and stood up - *"What is going on?"*
 
 *"Either way, why are you all here? I thought Mister Wolf here was going to tell me how I was going to be murdered if I don't get to the next challenge."* - continued Sam. His brain made the observation that he was a little too sassy for his own good, somehow the message had not reached his tongue.
 
-All three spectres looked at one another, wolf and spider nodded to goat-turtle - *You have reached the mid point in your journey to become worthy. Before you, and your friends, proceed we would like to assess your progress before you face the next two trials.*
+All three spectres looked at one another, the wolf and the spider nodded to the goat-turtle - *You have reached the mid point in your journey to become worthy. Before you, and your friends, proceed we would like to assess your progress heading to your next and final challenges.*
 
 Sam looked at each of the spirits, wondering what do they mean - *"I thought each trial was the assessment."*
 
@@ -112,11 +112,11 @@ The wolf spirit stared at Sam and letting a puff of air escape his lungs, he sat
 
 *"We won't"* - replied Hannah.
 
-Silence filled the room a few moments, even the ‘squeep, bloop, splish-splash’ of the drops of water dropping from the ceiling decided it was better to not contest the temper of the wolf.
+Silence filled the room for a few moments, even the ‘squeep, bloop, splish-splash’ of the drops of water dropping from the ceiling decided it was better to not contest the temper of the wolf.
 
-Wolf remained observing the children before raising his hand to command Amir - ***You boy, apologise to her, NOW!***
+The wolf remained observing the children before raising his hand to command Amir - ***You boy, apologise to her, NOW!***
 
-Amir understood the tone - *"I am sorry. If anything goes your mask looks amazing and I liked the imagination of mixing a goat and a turtle in a single mask. I mean, looking at this room, I can tell that you were one of the most beautiful spirits, in the room... depending on the room and who was in the room..."* - Amir started to realise his attempt of compliment was doing more harm than good - *"I should just zip it, I am sorry. I truly am."*
+Amir understood the tone - *"I am sorry. If anything goes your mask looks amazing and I liked the imagination of mixing a goat and a turtle in a single mask. I mean, looking at this room, I can tell that you were one of the most beautiful spirits, in the room... depending on the room and who was in the room..."* - Amir started to realise his compliment attempt did more harm than good - *"I should just zip it, I am sorry. I truly am."*
 
 The turtle spirit cleared the tears from her bright sky-blue eyes with her ghostly hand, the water droplets vanished as if these evaporated - *Thanks.*
 
@@ -128,13 +128,13 @@ Hannah's mind raced through the new information - *"Six of you? If there are fou
 
 ***Charon, the youngest of us*** - reminisced the wolf - ***He sculpted our masks out of the stone of this cave, on those days before he felt the need to be outside of this cave.***
 
-Sam felt a hint of sweet memories in wolf's voice.
+Sam felt a hint of sweet memories in the wolf's voice.
 
-***Enough of this! Time is of essence. I must not be entertained by mundane chatter, you must attain the glory of the trial of the air.*** - replied wolf standing off his chair.
+***Enough of this! Time is of essence. I must not be entertained by mundane chatter. It seems you have achieved the required learning to go further, you must attain the glory of the trial of the air. We shall return to our resting.*** - replied the wolf standing off his chair.
 
 Sam looked at the spectral shape of the wolf ascend towards the shadows and asked - *"Mr. Wolf? If one of you had a name, do you have a name yourself?"*
 
-The spider spirit looked inquisitively at the wolf, he stopped on the tracks to vanish in the thin air.
+The spider spirit looked inquisitively at the wolf, he had stopped on the tracks to vanish in the thin air.
 
 ***Names? Ah yes! We had them once, but those names are long forgotten.*** - replied the wolf.
 
@@ -151,3 +151,4 @@ Sam decided it was best to leave the room. He looked at the decorated benches th
 *"Oi! Are you coming or what?"* - asked Amir.
 
 Sam looked at his friend and smiled. As he followed Amir, he wondered if the spectres were as good friends as his companions and decided it was better to leave any jealousy behind. He understood he wasn't losing his buddy to Hannah, he just needed to share his happiness.
+
