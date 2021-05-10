@@ -68,7 +68,7 @@ Yule smiled slightly to Paul's words - *"Yes, it has been a while since we did i
 
 A tiny puff of air disturbed a few strands of Yule's hair, it was barely palpable but she noticed. Again, there was no reaction from Yule to acknowledge the arrival of another companion other than her words - *"Welcome Mathias."*
 
-Paul turned around and found Mathias bent over, his hands rested on his knees and his face leaned, a stream of drops left his face hurling towards the ground. He took every deep breath as if it was his last. Mathias just raised his hand to acknowledge the welcoming and continued huffing in a battle to recover his normal breathing.
+Paul turned around and found Mathias bent over, his hands rested on his knees. His face leaned forward, from which a stream of drops hurled towards the ground. He took every deep breath as if it was his last. Mathias just raised his hand to acknowledge the welcoming and continued huffing in a battle to recover his normal breathing.
 
 *"Wow Matt, what happened to you?"* - added Paul.
 
