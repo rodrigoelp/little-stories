@@ -182,9 +182,9 @@ Sam wanted to understand Moss' explanation - *It was all a dream* - he thought s
 
 Sam hesitated for a moment, he wanted to return to Hannah and Amir, but he gave another look at Moss and give her a big hug - *"Thank you. I'll take good care of... you."*
 
-Moss smiled and extended her slender arms around Sam - "You better go, if you don't wake up Amir might kiss you."
+Moss smiled and extended her slender arms around Sam - "You better go, if you don't wake up Amir might smooch you."
 
-"What? What do you mean kiss me?" - replied Sam.
+"What? What do you mean with smooch me?" - replied Sam.
 
 "I think he is trying to revive you and he thinks someone told him he needed to push your chest and kiss you for a little bit" - replied Moss.
 

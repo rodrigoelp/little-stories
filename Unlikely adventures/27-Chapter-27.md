@@ -1,22 +1,24 @@
 # Chiropteran discoveries
 
+Sam battled his disrupted focus, feeling as if he had woken up from a heavy dream whilst he listened Amir and Hannah argue behind him.
+
 *"That spirit is horribl-OUCH!"* - said Amir rubbing his ribs, which decided to ache as Hannah's elbow left its vicinity.
 
 Hannah shook her head in disapproval to Amir's highlights - *"What would you do if this trial is about respect, huh?"*
 
-*"Yes ok, but... I mean... look at it!"* - said Amir marginally escaping anything flying elbow to his ribs.
+*"Yes ok, but... I mean... look at it!"* - said Amir marginally escaping a flying elbow directed at his ribs.
 
-Sam inspected the statue. He recognised the mask wasn't the most amicable to the eye.
+Sam inspected the statue in front of him and he had to recognise, the mask wasn't the most amicable to the eye.
 
-The statue was sculpted out of the walls of the cavern. It looked like a creature frozen in time, frozen by a basaltic prison. However, the spirit's wings had a different appearance to the rest of the sculpture, it looked like a pair of fleshy bat wings, so fleshy in fact that is looked almost made out of skin or some sort of leather, even though it was made out of stone.
+The statue was sculpted out of the walls of the cavern. It looked like a creature frozen in time, frozen by a basaltic prison. However, the spirit's wings had a different appearance to the rest of the sculpture, it looked like a pair of fleshy bat wings, so fleshy in fact that it looked almost made out of skin or some sort of leather, even though it was made out of stone.
 
 Sam continued to observe the figure, he found covered under its wings the contour of its arms. It was the sort of shape describing in details its thin and delicate extremities which ended with its fingers intertwined, connected just above its belly. There he saw razor sharp nails capable of tearing through anything with flesh.
 
 Sam's imagination didn't want to focus on the terrible images meandering at the back of his mind augmenting his fear. Instead, he focused on the edges of the sculpture, metaphorically walking with his gaze towards the top of the wings in which he saw a sort of fur covering the spirit's neck. Not too distant from the neck, he found the spirit's haunting mask.
 
-Sam's description of the mask would be, to the best of his verbal abilities, a hungry rabid bat, maybe a vampire. A creature of the darkness hoping to pounce and maul its victims body whilst showing its small set of sharp teeth. It would sink its teeth right into your neck alike a person with self control would to a double fudge chocolate cake. Sam could not help but to unconsciously bring up his hands to cover his neck and any exposed areas. Whoever sculpted the statue was quite skilled giving it such life-like quality.
+Sam's description of the mask would be, to the best of his verbal abilities, a hungry rabid bat, maybe a vampire. A creature of the darkness hoping to pounce and maul its victims body whilst showing its small set of sharp teeth. It would sink its teeth right into your neck like a person with self control issues would to a double fudge chocolate cake. Sam could not help it but he unconsciously brought his hands up to cover his neck and any exposed areas. Whoever sculpted the statue was quite skilled giving it such life-like quality.
 
-Sam's attention was glued to the petrified creature. Anybody in Sam's mind would've understand why, he walked from one side of the room to the other in an attempt to release the pressure casted off the statue's eyes. It was as if the statue was fixated on him. He waved his hand at the statue, sort of in an idiotic state, expecting some sort of reaction back. But something spooked him to the core.
+Sam's attention was glued to the petrified creature. Anybody in Sam's mind would've understood why he walked from one side of the room to the other in an attempt to release the pressure casted off the statue's eyes. It was as if the statue was fixated on him. He waved his hand at the statue, sort of in an idiotic state, expecting some sort of reaction back. But something spooked him to the core.
 
 *"... SAM!"* - said Hannah summoning Sam's distant attention to the physical world.
 
@@ -38,13 +40,13 @@ Sam observed both his friends for an instant. He recognised their caring anxiety
 
 *"Take a look at the statue! It feels like it is alive..."* - he added refocusing his attention once more to the features of the statue, perhaps a far away location in which the statue had its own voice. One that sounded foreign and exotic.
 
-Sam's focus drifted one more, wondering where exactly where the pupils on those eyes covered by a mask. The acute pressure was uncomfortable. Almost like that sort of itchiness you feel on your back before feeling a spider watching under your shirt, right before you need to change your underwear for clean ones.
+Sam's focus drifted once more, wondering where exactly were the pupils on those eyes covered by the spooky mask. The acute pressure was uncomfortable. Almost like that sort of itchiness you feel on your back before feeling a spider watching under your shirt, right before you need to change your underwear for clean ones.
 
 *"SAM!"* - said Hannah once again - *"Snap out of it!"*
 
 *"Huh?"* - he replied feeling confused - *"What did I do now?"*
 
-*"Sam, you explained your experience in this room and stopped halfway through."* - explained Hannah - *"You just stopped. Stupefied watching at the statue for five minutes!"*
+*"Sam, you explained your experience in this room and stopped halfway through."* - explained Hannah - *"You just stopped. Stupefied watching that statue for five minutes!"*
 
 "Huh? I... I didn't, did I?" - replied Sam in an attempt to bring some memories of the last few minutes and push the presence of the statue away from him.
 
@@ -52,13 +54,13 @@ Sam's focus drifted one more, wondering where exactly where the pupils on those 
 
 Sam shook his head, hoping to wake up from whatever trance he found himself in - *"Right, sorry. What are we doing?"*
 
-*"Finding some clues, Sam"* - replied Hannah. Her voice carried hints of fatigue - *"I would be easier if we had a little bit of light  but..."*
+*"Finding some clues, Sam"* - replied Hannah. Her voice carried hints of fatigue - *"It would be easier if we had a little bit of light but..."*
 
-*"Right..."* - Sam tried to focus on something else in the room but, for the first time since he can remember, his brain connected the fact the room was unusually dark in comparison to the previous rooms - *"Huh, where are the candles?"*
+*"Right."* - Sam interrupted as he tried to focus on something else in the room, but for the first time since he could remember, his brain connected the fact that the room was unusually dark in comparison to the previous rooms - *"Huh, where are the candles?"*
 
 Amir opened his mouth and closed it a few times. Amir wasn't particularly skilled at hiding frustration - *"We already had this conversation Sam. All the candles were knocked down by the current of air in here. That, or someone stole the candle sticks!"*
 
-Sam's brain connected the sensations of his leg with the rational part; it reached to the conclusion the tingling sensation must be a stream of wind rubbing against his skin. He looked down and could barely see a powdery substance being pushed by an invisible force. A few feet away from his feet, he saw a cylindrical white stick - *"I think I have found a candle."* - and crouched to pick it up.
+Sam's brain connected the sensations of his leg with the rational part; it reached to the conclusion the tingling sensation must be a stream of wind rubbing against his skin. He looked down and could barely see a powdery substance being pushed by an invisible force. A few feet away from his feet, he saw a cylindrical white stick - *"I think I have found a candle."* - and he crouched to pick it up.
 
 The candle stick felt warm to the touch, its tip felt soft and malleable, as if it was burning before they arrived to the cavern. Sam's intuition continued to warn him against a prolonged stay in the cavern. His memory made him aware of the pressure on his neck, he was starting to get used to it - *It is just a statue. Just like every other challenge, it must be just a statue* - professed Sam in his inner thoughts.
 
