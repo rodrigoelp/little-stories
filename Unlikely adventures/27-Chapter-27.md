@@ -1,6 +1,8 @@
 # Chiropteran discoveries
 
-Sam battled his disrupted focus, feeling as if he had woken up from a heavy dream whilst he listened Amir and Hannah argue behind him.
+Sam battled his disrupted focus, feeling as if he had woken up from a heavy dream whilst he listened Amir and Hannah argue behind him. The cavern had that sort of atmosphere that is thick and soupy, almost as if the air had this off quality. It was that ‘je-ne-sais-quoi’ that makes you think ‘If I start running, would I truly move somewhere else?’
+
+Sam rubbed his eyes in an attempt to sharpen his mind.
 
 *"That spirit is horribl-OUCH!"* - said Amir rubbing his ribs, which decided to ache as Hannah's elbow left its vicinity.
 
