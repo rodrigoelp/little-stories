@@ -32,11 +32,11 @@ Hannah gave a look to Sam, she was slightly blushed - *"I didn't tell him to kis
 
 *"I did not jump on him!"* - said Amir shocked at Hannah's implication.
 
-*"Fladdermoss, could you take me with you?"* - said Sam, hoping the statue reanimated itself, extending her wings around Sam, driving him back into the land of the dreams.
+*"Fladdermöss, could you take me with you?"* - said Sam, hoping the statue reanimated itself, extending her wings around Sam, driving him back into the land of the dreams.
 
 Amir's argument got halted in mid air - *"Flan and mousse? What do you mean with Flan and Mousse?"*
 
-Sam smiled to himself - *"Fladdermoss, that's the name of this sprit"* - he added. From his location, the statue looked a lot less menacing than before, the fearfulness it projected was gone. Sam observed the sculpture protruding off the wall was a slender young woman waring an oversized cape with padder shoulders. The cape still gave the same leathery impression as before but, the proportions accommodated a more human figure than before. Sam watched the mask once again, it certainly had features difficult to love; however he smiled and extended his hand to touch it.
+Sam smiled to himself - *"Fladdermöss, that's the name of this sprit"* - he added. From his location, the statue looked a lot less menacing than before, the fearfulness it projected was gone. Sam observed the sculpture protruding off the wall was a slender young woman waring an oversized cape with padder shoulders. The cape still gave the same leathery impression as before but, the proportions accommodated a more human figure than before. Sam watched the mask once again, it certainly had features difficult to love; however he smiled and extended his hand to touch it.
 
 *"Sam? What are you doing?"* - said Hannah - *"I wouldn't do that, the last time when you got close to the statue you fainted."*
 
@@ -44,7 +44,7 @@ Sam smiled to himself - *"Fladdermoss, that's the name of this sprit"* - he adde
 
 *"Are you serious? Can't you remember Hannah and I walking in, picking up the two candles and lighting it up?"* - said Amir - *"As soon as the statue was illuminated you walked straight to it and passed out."*
 
-Sam remained quiet, he remembered the last conversation with Fladdermoss - *It was all a dream, even before I came in the room. There was no attack, she took me in as soon as I saw her.* - Sam gathered his hands close to his chest, a warmth sensation poured from it, as if a cup of hot soup has been placed on his hands in a really cold day. A glimmer made him look down, just to find a lime coloured flame.
+Sam remained quiet, he remembered the last conversation with Fladdermöss - *It was all a dream, even before I came in the room. There was no attack, she took me in as soon as I saw her.* - Sam gathered his hands close to his chest, a warmth sensation poured from it, as if a cup of hot soup has been placed on his hands in a really cold day. A glimmer made him look down, just to find a lime coloured flame.
 
 *"Woooah!"* - said Amir scratching his head - *"How? How did you do that?"*
 
@@ -58,7 +58,7 @@ Sam remained quiet, he remembered the last conversation with Fladdermoss - *It w
 
 *"I see, you like to overthink as well, huh?"* - said a voice behind the children.
 
-Sam recognised the female and delicate voice. The child form of Fladdermoss stood under her statue. She casted soft light around her, her mask over the top of her head showing her face - *"You should probably head on to the next trial."*
+Sam recognised the female and delicate voice. The child form of Fladdermöss stood under her statue. She casted soft light around her, her mask over the top of her head showing her face - *"You should probably head on to the next trial."*
 
 Hannah watched her, her mind scrambled to reorganise her thoughts - *"is she The Bat?"*
 
@@ -66,17 +66,17 @@ Hannah watched her, her mind scrambled to reorganise her thoughts - *"is she The
 
 *"But I thought, the spirits could only show themselves in their worlds or around the pillar outside?"* - followed up Hannah, in an attempt to understand the current state of the events.
 
-*"Ha!"* - reacted Fladdermoss with the same tone someone would use to explain how wrong you are - *"Are there rules written somewhere that we should follow? No little girl, we are free to roam everywhere in the cave of prophecies."*
+*"Ha!"* - reacted Fladdermöss with the same tone someone would use to explain how wrong you are - *"Are there rules written somewhere that we should follow? No little girl, we are free to roam everywhere in the cave of prophecies."*
 
 Hannah continued to examine the spirit in front of her - *"But the statue... you look very different!"*
 
-Fladdermoss gave a gentle look at Hannah whilst slowly approaching Sam - *"Should I examine her as well?"*
+Fladdermöss gave a gentle look at Hannah whilst slowly approaching Sam - *"Should I examine her as well?"*
 
 Sam shook his head.
 
 *"Very well then"* - She whispered to Sam - *"You have learnt your lesson."* - and winked at Sam. He didn't reply, he focused on the warmth the lime flame produced at it touched his fingers.
 
-Fladdermoss once more deviated her gaze towards Hannah and Amir - *"Off you go then, I shall see you at the gathering, just before the Tiger summons you. Chop-chop!"* - she said in a motherly tone, ushering the kids out of her chamber.
+Fladdermöss once more deviated her gaze towards Hannah and Amir - *"Off you go then, I shall see you at the gathering, just before the Tiger summons you. Chop-chop!"* - she said in a motherly tone, ushering the kids out of her chamber.
 
 As Hannah and Amir walked past the gate's umbral, Hannah whispered to Amir - *"You have been unnaturally quiet."*
 
@@ -84,7 +84,7 @@ As Hannah and Amir walked past the gate's umbral, Hannah whispered to Amir - *"Y
 
 Hannah smiled, reassured with the fact that the world could be confusing but Amir will be Amir. She followed him and his ramblings as they disappeared out of view.
 
-Sam walked towards the gate, the congregation of spirits awaited him in the cavern but he stopped and turned to give one last look to Fladdermoss - *"Could I ask one last question?"*
+Sam walked towards the gate, the congregation of spirits awaited him in the cavern but he stopped and turned to give one last look to Fladdermöss - *"Could I ask one last question?"*
 
 The spirit gave an inquisitive look to Sam - *"What's weighing you down Sam?"*
 
@@ -92,7 +92,7 @@ The spirit gave an inquisitive look to Sam - *"What's weighing you down Sam?"*
 
 *"Ok, but that is not a question."* - she replied.
 
-*"Uhms. You told me your friends call you Moss and your name is Fladdermoss."* - he continued elaborating the premise to his question.
+*"Uhms. You told me your friends call you Moss and your name is Fladdermöss."* - he continued elaborating the premise to his question.
 
 *"Oh, I see."* - she replied as she understood the direction of Sam's question - *"Fladdermöss is not my real name but the name I remember having. It means winged mouse. It is a silly joke. Either way, go and join your friends. The next trial is about to start."*
 
