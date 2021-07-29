@@ -108,7 +108,7 @@ As Hannah and Amir walked past the gate's umbral, Hannah whispered to Amir - *"Y
 
 *"... Unnaturally quiet? Do you understand what just happened? Sam was dead, then he was fine asking for flan whilst pulling a green flame from his chest, then a random girl popped out of nowhere and the thing that is 'unnatural' is my silence?"* - he replied to Hannah as he continued to scratch his head - *"I am confused that's what I am!"*
 
-Hannah smiled, reassured with the fact that the world could be confusing but Amir will be Amir. She followed him and his ramblings as they disappeared out of view.
+Hannah smiled, reassured by the fact that the world could be confusing at times, but Amir will always be Amir. She followed him and his ramblings as they disappeared out of view.
 
 Sam walked towards the gate, the congregation of spirits awaited him in the cavern but he stopped and turned to give one last look to Fladdermöss - *"Could I ask one last question?"*
 
