@@ -126,7 +126,7 @@ The spirit gave an inquisitive look to Sam - *"What's weighing you down Sam?"*
 
 *"Yeah?"*
 
-*"Why do you were these masks?"* - said Sam pointing to the Bat's mask.
+*"Why do you wear these masks?"* - said Sam pointing to the Bat's mask.
 
 *"First you forget names, then you forget faces."* - she added, smiling as she remembered how that phrase went - *"Either way, it is time for you to join your friends. The next trial is about to start."*
 

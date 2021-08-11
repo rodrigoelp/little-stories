@@ -4,7 +4,7 @@ Sam's stomach contorted, filled with one million butterflies flapping their wing
 
 He wanted to scream, kick or fight but the chiropteran figure kept its tight grip and long fingers around him, preventing any voluntary or involuntary movement. He clenched his fists, as a sign of protest to the creature keeping him hostage. The vertigo stopped abruptly ending with the thud of his body as it landed on the cobblestone covered ground. To his surprise, it was not painful at all, so he opened his eyes to the unpleasant figure of the bat looking down on him - *Stand up boy!*
 
-Sam stared at the creature with it long thin extremities and dark sharp grey claws.
+Sam stared at the creature with its long thin extremities and dark sharp grey claws.
 
 *"WHERE ARE MY FRIENDS?"* - yelled Sam at the top of his lungs. He was not expecting it was going to come that loud, but his voice echoed off structures in this new environment.
 
@@ -14,7 +14,7 @@ Sam stared at the creature with it long thin extremities and dark sharp grey cla
 
 The bat refocused its gaze from the distance voice back to Sam. The bat moved sideways, filled with expectation of what its prey is prepared to do. The leathery wings moved slowly to cover its shape. Sam felt as if the creature grew taller.
 
-*"Are you the spirit of this trial?"* - asked Sam, in an attempt to rationalise the later events.
+*"Are you the guardian of this trial?"* - asked Sam, in an attempt to rationalise the later events.
 
 *Guardian? I haven't been called that in a while, but yes! Yes, I am!* - said the bat still contemplating the diminished figure of Sam - *I'll judge those seeking the clarity of the element of the air.*
 

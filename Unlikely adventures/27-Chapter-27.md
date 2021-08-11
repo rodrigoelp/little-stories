@@ -96,7 +96,7 @@ Sam had lost his words or rather, Sam found himself trying to understand Amir's 
 
 Sam returned his gaze to the statue on the wall, somehow the sight was so much worse now than in the darkness.
 
-The light highlighted the sharpness of its fangs and nail, its flesh-like wings looked more fleshy and less stony than before. The statue felt a more real now than before when it was surrounded by shadows. Sam sat there, staring at the statue.
+The light highlighted the sharpness of its fangs and nail, its flesh-like wings looked more fleshy and less stony than before. The statue felt more real now than before when it was surrounded by shadows. Sam sat there, staring at the statue.
 
 Hannah noticed the colours washing away from Sam's face and decided it was best to engage him - *"Sam? What is going on?"*
 
@@ -116,7 +116,7 @@ Sam's inner thoughts ran wild, he imagined the statue descending on the distract
 
 *"Do not get close Hannah"* - warned Sam as Hannah roamed into the danger zone.
 
-She dismissed Sam's irrational statement - *"It is just a decoration Sam. The most likely explanation is Amir is hiding somewhere trying to get a good scare our of us!"*
+She dismissed Sam's irrational statement - *"It is just a decoration Sam. The most likely explanation is Amir is hiding somewhere trying to get a good scare out of us!"*
 
 Sam observed Hannah stand on the same location Amir disappeared. His gaze moved from Hannah to the statue, it remained hung on its spot with its fleshy wings and fur around its neck, with its thin arms and thin hands ending on razor-sharp nails that are slightly raised, the fingers moving slowly as the statue's mask watched its prey right in its reach - *"Hannah! Run!"*
 
@@ -133,4 +133,4 @@ The figure stopped its progress towards Sam and rolled its head on its right - *
 
 Sam's thoughts struggled to organise a coherent threat in reply - *"Or else I will scream like a little boy!"*
 
-The figure pushed one of its wings open to uncovered its thin hand, long fingers and razor-sharp nails. Sam knew what was going to happen next and he covered his eyes with his arms just as the figure pounced on him.
+The figure pushed one of its wings open to uncover its thin hand, long fingers and razor-sharp nails. Sam knew what was going to happen next and he covered his eyes with his arms just as the figure pounced on him.
