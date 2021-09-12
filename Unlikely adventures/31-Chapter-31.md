@@ -96,7 +96,7 @@ Amir curiously watched the spectre closing the distance.
 
 The tiger stopped a few metres away from the children and raised his arms up in the air. An explosion of light filled the cavern as every candle burst in flames. Columns of fire rose behind the Tiger making him appear even bigger still.
 
-The light revealed the giant in front of the children; a giant wearing a Tiger mask decorated with red and orange markings, a thick dark-orange hunter coat that covered most of his body with the exception of his large belly. A big smile on his face.
+The light revealed the giant in front of the children; a giant wearing a tiger mask decorated with red and orange markings, a thick dark-orange hunter coat that covered most of his body with the exception of his large belly. A big smile on his face.
 
 He lowered his hands to observe the children. The columns of fire behind him had quiet down leaving scorching marks on the walls and the roof. There, the tiger inspected the three impressionable children.
 
@@ -106,7 +106,7 @@ He lowered his hands to observe the children. The columns of fire behind him had
 
 *Beats me.* - replied the Spider.
 
-**I AM THE ASTROPHYSICAL ENTITY OF THE FOURTH STATE OF MATTER AND I'VE COME WITH PROVOCATIONS FOR THOSE WILLING TO UNDERTAKE THE ENDEAVOUR!** - continued yelling the Tiger.
+**I AM DA ASTROPHYSICAL ENTITY OF DA FOURTH STATE OF MATTER AND I'VE COME WITH PROVOCATIONS FOR DOSE WILLING TO UNDERTAKE DE ENDEAVOUR!** - yelled the Tiger.
 
 The Wolf lowered his head into his hand and covered his eyes with it - ***Oh dear...***
 
