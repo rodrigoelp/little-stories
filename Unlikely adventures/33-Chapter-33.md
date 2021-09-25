@@ -190,11 +190,13 @@ Amir froze thinking about this phrase. He remembered how Sam came to rescue them
 
 *"But... the girl told me it isn't!"* - Sam replied.
 
-*"I told you already Sam. You are risking your lives here, for real."* - commented the Bat - *"The journey you are going to embark is dangerous and difficult. We would prefer to take your lives here and leave your flames stranded and suffering who knows where."*
+*"I told you already Sam. You are risking your lives here, for real."* - commented the Bat - *"The journey you are going to embark is dangerous and difficult. We would prefer to take your lives here than to leave your flames stranded and suffering who knows where."*
 
-**And I dis guy, as he is, will be your downfall for sure.** - finished the Tiger.
+**And dis guy, as he is, will be your downfall for sure.** - finished the Tiger.
 
-Those words destroyed whatever little confidence Amir had in himself - *"Don't harm my friends... please?"*
+Those words destroyed whatever little confidence Amir had in himself.
+
+*"Their downfall?"* - said Amir, more to himself than anybody in particular - *"If I go, I don't want any harm done to my friends... please?"*
 
 **Den, come wid me** - replied the Tiger extending his gigantic hand declared with sharp claws - **I'll test ya**
 
@@ -202,15 +204,15 @@ Those words destroyed whatever little confidence Amir had in himself - *"Don't h
 
 **If he got what I want, I'll let him go.** - replied the Tiger.
 
-*"And if he doesn't have it?"* - Hannah felt for the very first time since she left the Earth's trial, terror. The image of Amir's face turning into stone flashed momentarily.
+*"If he doesn't?"* - Hannah felt for the very first time since she left the Earth's trial, terror. The image of Amir's face turning into stone flashed momentarily.
 
 **Den you two can go** - he replied. There was no doubt about the future of those who didn't meet the criteria. The Tiger jittered his hand in front of Amir - **Let's go boy.**
 
-*"We are not going to let him go alone!"* - said Sam filled with frustration launching himself forward, but the Turtle foresaw the action and had secured Sam in place by holding his shoulders.
+*"He is not going alone!"* - said Sam filled with frustration launching himself forward, but the Turtle foresaw his actions and had secured Sam in place by holding his shoulders. For such a fragile looking spirit she was surprisingly strong.
 
 *If he doesn't go, you all fail the trials* - she replied - *All your efforts would be in vain.*
 
-Amir's eyes were fixated on its claws. He was afraid of what was about to come next, he was terrorised what it would happen otherwise. Finally he reached to the open claw and placed his hand on it.
+Amir's eyes were fixated on the Tiger's claws. He was afraid of what was about to come next, he was terrorised what it would happen otherwise. Finally, he reached to the open claw and placed his hand on it.
 
 A tower of red flames burst from the ground shallowing the enormous spectre holding the hand of a little frighten child.
 
