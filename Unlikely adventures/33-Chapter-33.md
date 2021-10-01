@@ -116,7 +116,7 @@ The Tiger stood up straight self-consciously, cupping his hands over his mouth a
 
 The Tiger shifted poses revealing he was uncomfortable with the current stream of events - **O'rite! Enough! Dis kid is good.** - he cleared, dismissing Sam from his presence and focusing on Hannah.
 
-**Ok den. What do we have here?** - said the Tiger inspecting Hannah - **A cute little girl!**
+**Ok den. Wut do we have here?** - said the Tiger inspecting Hannah - **A cute little girl!**
 
 *"A ‘cute little girl’? Isn't that a sexist and misogynistic comment?"* - snapped back Hannah to the, now, terrorised eyes of the Tiger.
 
@@ -146,7 +146,7 @@ The Wolf leaned closer to the Tiger's ear and said - **Think about what you just
 
 *Dink about what I said* - thought the Tiger, watching Hannah up and down - *She **is** alive, she has meat and bones. We are spirits we have... not-meat and not-bones... Why is dis girl look at me like I am a pervert?* - A moment of clarity that could only be illustrated with a device of electrical radiance hanging over his head.
 
-**Oh! No, no, no, no, no, no! I didn't mean it dat!** - said the Tiger felling anguish flooding his paranormal existence - **I meant dis! Pop!**
+**Oh! No, no, no, no, no, no! I did'n mean it dat!** - said the Tiger felling anguish flooding his paranormal existence - **I meant dis! Pop!**
 
 A yellow flash materialised into an orb, hovering above Hannah's head.
 

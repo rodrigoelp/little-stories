@@ -20,7 +20,7 @@ Amir had noticed the raging flames acquired a degree of tranquility when he Tige
 
 *"Yellow and red goes really well together, huh?"* - asked Amir.
 
-The raging flames calmed down - **Wha?**
+The raging flames calmed down - **Wut?**
 
 *"I said I liked the red and yellow colours."* - explained Amir - *"If I could I would wear those colours, so when I fly past some people they would"*
 
@@ -170,7 +170,7 @@ Ghastly silhouettes began to show their contours surrounding the pair. Amir trie
 
 *"Help me!"* - screamed Amir in desperation, pleading to the large blazing striped animal spirit - *"Please!"*
 
-**Wid wha?** - said the enormous fire feline of three to four children tall - **I'm sorry boy, dose fings look creepy and I don't wanna get in da middle of your imagination... Hey! Wha're you doin!?**
+**Wid wut?** - said the enormous fire feline of three to four children tall - **I'm sorry boy, dose fings look kinda creepy and I don't wanna get in da middle of your imagination... Hey! wut're you doin!?**
 
 *«You leech!»*
 
@@ -236,7 +236,7 @@ The Tiger looked up, remembering the last few events - **Oh... I get it.**
 
 *"Not a coward... I just think that others might have better arguments to discuss when a hungry monster shows up"* - added Amir, giving an apologetic look at the Tiger - *"No offence intended."*
 
-**Wid wha?** - replied the Tiger.
+**Wid wut?** - replied the Tiger.
 
 *«You've lied to your friends»*
 
@@ -272,7 +272,7 @@ The twisted Amir began smiling - *«Yes, you are not capable»*
 
 *"Is that answer, ok?"*
 
-**All you need to do is kick dis ring bottom real hard. Fink about da moments you want to share wid your friends.**
+**All you need to do is kick dis fing's bottom real hard. Fink about da moments you want to share wid your friends.**
 
 Amir closed his eyes, imagined the worried look on Hannah and Sam's anxiety - *They are waiting for me...*
 
@@ -286,7 +286,7 @@ A large mound of sand began bulging, it took a round shape with an inverted star
 
 The originally amorphous shape restructured itself into a large crouching-person-like creature. It was as tall as the already gigantic animal shape of the Tiger.
 
-**Dat's cool! I've never seen a golem before.**
+**Wow, Dat's cool! I've never seen a golem before.**
 
 The twisted Amir raised his hands. A horde of Sams and Hannahs appeared from the shadows, running straight at the golem whilst Amir climbed on the golem's hand.
 
@@ -314,13 +314,13 @@ They stood there in silence. Amir shook his robe a few times to get rid of the e
 
 *"Mister Tiger, could I ask a favour of you?"*
 
-**Wha is it?**
+**Wut is it?**
 
 *"Could you hug Sam and Hannah and tell them I am sorry?"*
 
 The Tiger nodded. Amir looked down, the golem slowly began losing its sand to the ground, fading from view.
 
-**Oi boy, I fink you have a little bit of sand here** - said the Tiger, blowing at Amir's chest. The flame on his chest flickered brightly, holding as strongly as possible to its owner. It flicked twice and began glowing red - **Yeh, dats much better.**
+**Oi boy, I fink you have a little bit of dust right here** - said the Tiger, blowing at Amir's chest. The white flame on his chest flickered brightly, holding on for dear life to its owner. It flicked twice and began glowing red - **Yeh, dats much better.**
 
 *"What happened? Why is it doing this?"*
 
