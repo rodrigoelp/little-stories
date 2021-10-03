@@ -44,9 +44,7 @@ The star sent a fickle ray, curiously.
 
 
 
-*"I'm taking two young little stars to Eden"* - answered Virgil.
-
-"... As their guide" - clarified Virgil.
+*"I'm taking two young little stars to Eden"* - answered Virgil - *"... As their guide"* - he clarified.
 
 
 
