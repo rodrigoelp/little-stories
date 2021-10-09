@@ -46,7 +46,7 @@ Sam's and Hannah's chests produced little coloured sparks, in addition to their 
 
 The bat rolled her eyes - *"I **am** older than most of you."*
 
-**Let's focus on the children.** - added the Wold.
+**Let's focus on the children.** - added the Wolf.
 
 *But we wuv you our fluffy puffy little batsie Moss* - said the Spider to the Bat's discontent.
 
@@ -54,7 +54,7 @@ The bat rolled her eyes - *"I **am** older than most of you."*
 
 The Wolf had to maintain his spectral composure in front of the children. He had worked so hard to be respected but the elemental guardians kerfuffled over trivial matters - ***You all should behave in accordance to your old age.***
 
-*"Uh oh"* - said Amir as he recognised the classical phrasing of words that would lead you to appreciate the taste of your own foot.
+*"Uh oh"* - said Amir as he recognised the classical composition of words forming a phrasing that would lead you to appreciate the taste of your own foot.
 
 The three elemental spirits instantly stopped their chatter and gasped to the statement. 
 
@@ -68,7 +68,7 @@ The three elemental spirits instantly stopped their chatter and gasped to the st
 
 *"Shooshh!"* - commanded the Bat for certain secrets to remain forgotten - *"Let's agree in that we preserve quite well."*
 
-***... If we were more preserved the children would read our names as Tutancanis, PteroBattyl, Turtlesaurus and Megarachne...*** - murmured the Wolf - ***Anyhow. Children! Let us examine your blessings!***
+***... If we were more preserved the children would read our names as TutanCanis, PteroBattyl, Turtlesaurus and Megarachne...*** - murmured the Wolf - ***Anyhow: Children! Let us examine your blessings!***
 
 Hannah gave a furtive look at Sam and mimicked his movements. Sam rendered his hands close to his chest whilst in his chest two coloured sparks danced a waltz without touching each other. A bluish flame arched and poured towards his right hand, followed by a fizzy lime-coloured spark that whirled between the fingers of his other hand.
 
@@ -94,13 +94,13 @@ Hannah could distinguish the rough shape approaching. It was twice as tall as th
 
 Amir curiously watched the spectre closing the distance.
 
-The tiger stopped a few metres away from the children and raised his arms up in the air. An explosion of light filled the cavern as every candle burst in flames. Columns of fire rose behind the Tiger making him appear even bigger still.
+The Tiger stopped a few metres away from the children and raised his arms up in the air, an explosion of light filled the cavern as every candle burst in flames. Columns of fire rose behind the Tiger making him appear even more imposing.
 
-The light revealed the giant in front of the children; a giant wearing a tiger mask decorated with red and orange markings, a thick dark-orange hunter coat that covered most of his body with the exception of his large belly. A big smile on his face.
+The children were in awe with the shape of an enormous creature in front of them; a giant wearing a tiger mask decorated with red and orange markings, a thick dark-orange hunter coat that covered most of his body with the exception of his large belly. A big smile on his face.
 
-He lowered his hands to observe the children. The columns of fire behind him had quiet down leaving scorching marks on the walls and the roof. There, the tiger inspected the three impressionable children.
+He recovered his calmed pose and stared at the children. The columns of fire behind him had quiet down leaving scorching marks on the walls and the roof. There, the Tiger showed his bright yellow eyes analysing three impressionable children.
 
-**GREETINGS AND FELICITATIONS!** - he yelled.
+After a few moments, he filled his lungs and yelled - **GREETINGS AND FELICITATIONS!**
 
 *Spidie... Why is he talking like that?* - whispered the Turtle.
 
