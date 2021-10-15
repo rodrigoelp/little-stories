@@ -326,7 +326,7 @@ In unison, every spectator to Amir's revelation rolled their head to the side, l
 
 *"Pardon?"* - asked Hannah.
 
-*"Yeah, you know... you never notice them unless you look. It would hurt to take them out, but there will be a time when you just need to clench your butt and pull them out, right?"*
+*"Yeah, you know... you never notice them unless you look. Some play a function in your nose and finally, it would hurt to take them out, but there will be a time when you just need to clench your butt and pull them out, right?"*
 
 The astonished gaze of each spirit crossed each other as the implication of Amir's words resonated within their minds.
 
