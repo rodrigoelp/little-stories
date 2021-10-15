@@ -88,11 +88,11 @@ The statue slowly revealed its face to Amir. It was a statue of Hannah, her face
 
 *"W...what happened?"* - asked Amir, unsure of what was going on.
 
-"I lost my light" - she answered - "because you failed on the one task you had. You had to protect me and you didn't do it."
+*"I lost my light"* - she answered - *"because you failed on the one task you had. You had to protect me and you didn't do it."*
 
 Amir felt his heart sinking. An invisible force squeezed it to the point it was about to burst open - "I..."
 
-"I had to fight the spider on my own" - she said.
+*"I had to fight the spider on my own"* - she said.
 
 "But it wasn't my fault!" - refuted Amir - "I couldn't do anything towards the end!"
 
