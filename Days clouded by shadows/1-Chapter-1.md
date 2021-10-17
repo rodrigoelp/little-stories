@@ -69,3 +69,10 @@ A city now void of life, poisonous waters and thick toxic air with a permanent g
 Pointing his spear to the skies, he turned his spirit into a spark so bright that it flashed through every realm. Even though the darkness was unleashed upon the realms, this soon-to-be-forgotten land was going to be now its prison.
 
 It was known as the last flare of the Golden City and the birth of the Golden Wasteland.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](2-Chapter-2.md) 
+

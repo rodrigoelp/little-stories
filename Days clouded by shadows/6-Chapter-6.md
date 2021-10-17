@@ -70,5 +70,5 @@ When the sun rose from the sea was not greeted as usual by the smiling old man. 
 
 ----
 
- [Back to table of contents](0-Index.md) or [Next](6-Chapter-6.md) 
+ [Back to table of contents](0-Index.md) or [Next](7-Epilogue.md) 
 

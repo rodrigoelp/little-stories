@@ -98,5 +98,5 @@ The giant jar, rolled away from his cold hands, drifting slowly as one final but
 
 ----
 
- [Back to table of contents](0-Index.md) or [Next](5-Chapter-5.md) 
+ [Back to table of contents](0-Index.md) or [Next](6-Chapter-6.md) 
 

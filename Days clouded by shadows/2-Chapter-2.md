@@ -78,5 +78,5 @@ With her flame on one hand and the crystal on the other, she cast one last spell
 
 ----
 
- [Back to table of contents](0-Index.md) or [Next](2-Chapter-2.md) 
+ [Back to table of contents](0-Index.md) or [Next](3-Chapter-3.md) 
 
