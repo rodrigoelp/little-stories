@@ -11,3 +11,10 @@ To future readers: Thank you, your time spent reading my words and ideas is dear
 To critics: Thank you as well, positive and negative feedback helps others organise their train of thoughts and tune the senses.
 
 Hope you enjoy it.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](1-Chapter-1.md) 
+

@@ -73,3 +73,10 @@ With her flame on one hand and the crystal on the other, she cast one last spell
 
 
 `Hear me out, child of light, we were proud and reached beyond the sky, so high that we have returned to the stars.` - these were the words engraved on the throne of the Wise Elder of the Vault of Knowledge.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](2-Chapter-2.md) 
+

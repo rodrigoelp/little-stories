@@ -75,3 +75,10 @@ The day came to past, the long walk to the forest came to an end. Star Children 
 They vanished among the confusion of the day.
 
 There was no trace of them, just an empty citadel, the snow-covered twin peaks and the Valley of Triumph.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](3-Chapter-3.md) 
+

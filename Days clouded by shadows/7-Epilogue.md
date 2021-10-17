@@ -1,4 +1,4 @@
-# Epologue
+# Epilogue
 
 A dark tall robed figure was sitting on a rock and observed Father stretch an arm looking for his staff.
 
@@ -82,14 +82,21 @@ I GUESS EVERYBODY WILL HAVE TO BE REBORN
 
 Father turned around to look at his family and the stars high above them. *"How do you think we should summon the kids?"* asked, looking at the elders.
 
-HOW ABOUT 'HEY SLACKERS, TIME TO WORK' - said Death peeking beyond the gate.
+HOW ABOUT ‘HEY SLACKERS, TIME TO WORK’ - said Death peeking beyond the gate.
 
 *"That would be a tad offensive..." -* argued Father
 
-'HEY YOU, YOU ARE FINALLY AWAKE. YOU WERE TRYING TO CROSS THE BORDER...' - replied Death suggestively.
+‘HEY YOU, YOU ARE FINALLY AWAKE. YOU WERE TRYING TO CROSS THE BORDER...’ - replied Death suggestively.
 
 *"It doesn't feel like it belongs on their story" -* said Father waving his hands, trying to imagine their reaction.
 
 THEN HOW ABOUT *'WAKE UP, CHILD. BRING OUR LOST STARS HOME'*? - said the figure disappearing into the gate.
 
 *"I like that... I do like the sound of that"* - said Father leaning on his staff, waiting for the day the light returns to the realms of Sky.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md)
+

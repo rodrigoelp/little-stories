@@ -78,3 +78,10 @@ She did not notice her flame was slowing fading away.
 Her attention fixated on the cracks spreading on her crystal and the absence of her children. She just noticed two stars missing from her favourite constellation.
 
 And there she remained, her flame went out and she turned into dust, lost among the trees of the Hidden Forest.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](4-Chapter-4.md) 
+

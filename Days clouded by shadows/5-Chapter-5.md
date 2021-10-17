@@ -93,3 +93,10 @@ The night seemed to stretch every minute into hours. The stars drifted on their 
 He waited until every single flame was asleep, then enchanting one jar, opened it, letting it sucked in the light out of the chest of every single one of them. The flames flared up in the air, turned into little butterflies and zoomed in the jar. His grip was tight and his tears rolled down his mask.
 
 The giant jar, rolled away from his cold hands, drifting slowly as one final butterfly left the Collector's chest. His body turned to stone, laid next to it in a sleep-like state: in a gentle but long-lasting dream about the daylight of Prairie.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](5-Chapter-5.md) 
+

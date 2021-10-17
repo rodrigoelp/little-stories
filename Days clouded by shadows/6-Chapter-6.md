@@ -65,3 +65,10 @@ The waves had stopped moving.
 The night made a pact with the world to pay respect to such a noble soul.
 
 When the sun rose from the sea was not greeted as usual by the smiling old man. His staff was the only reminder that once there was a ruler of the Isle of Dawn.
+
+
+
+----
+
+ [Back to table of contents](0-Index.md) or [Next](6-Chapter-6.md) 
+
