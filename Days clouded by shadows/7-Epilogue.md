@@ -1,4 +1,4 @@
-# What comes next...
+# Epologue
 
 A dark tall robed figure was sitting on a rock and observed Father stretch an arm looking for his staff.
 
