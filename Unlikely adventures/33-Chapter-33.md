@@ -34,7 +34,7 @@ Hannah peeked from behind Amir. Something was very suspicious about this spirit.
 
 Sam scratched his head trying to understand what the spirit tried to say.
 
-Amir was just in state of awe.
+Amir was just in a state of awe.
 
 
 
@@ -58,7 +58,7 @@ A little smirk began appearing on the Bat's face - *"I think I know what is goin
 
 
 
-Time had stopped, if anything momentarily, to allow us examine the thoughts of the children.
+Time had stopped, if anything momentarily, to allow us to examine the thoughts of the children.
 
 Amir had started to notice that, the Tiger was losing some of his ‘cool’ factor.
 
@@ -70,7 +70,7 @@ Sam found himself more confused than before.
 
 *So lame* - whispered the Turtle.
 
-**I am NOT lame!** - refuted the Tiger.
+**I AINT lame!** - refuted the Tiger.
 
 *"You girls are bullies!"* - intervened the Bat - *"He wanted to have a good impression, right kitty?"*
 
@@ -82,7 +82,7 @@ The Turtle, the Spider and the Bat burst in laugher.
 
 **Hey!** - complained the Tiger.
 
-Sam walked closer to the Wolf - *"Uhum!"* - he cleared his throat, a clear action to muster some guts to ask difficult question as well as dislodging attracting the  attention of those around, which in this case was the Wolf - *"Excuse me, what is happening?"*
+Sam walked closer to the Wolf - *"Uh hum!"* - he cleared his throat, a clear action to muster some guts to ask difficult question as well as dislodging attracting the  attention of those around, which in this case was the Wolf - *"Excuse me, what is happening?"*
 
 The Wolf looked down, Sam's face had certainly changed these past few days - **Even I am not sure** - replied the Wolf, just to raise his voice once more - **Enough! Tiger! State your business!**
 
@@ -110,7 +110,7 @@ The Tiger stood up straight self-consciously, cupping his hands over his mouth a
 
 **Wordy! Yes, wordy of bribery** - continued the Tiger.
 
-*Bribery?* - doubted the Turtle trying to understand what the Tiger tried to imply.
+*Bribery?* - the Turtle doubted the Tiger's usage of the language or what he tried to imply.
 
 *No Tiger... You meant Bravery* - corrected the Spider.
 
@@ -146,23 +146,23 @@ The Wolf leaned closer to the Tiger's ear and said - **Think about what you just
 
 *Dink about what I said* - thought the Tiger, watching Hannah up and down - *She **is** alive, she has meat and bones. We are spirits we have... not-meat and not-bones... Why is dis girl look at me like I am a pervert?* - A moment of clarity that could only be illustrated with a device of electrical radiance hanging over his head.
 
-**Oh! No, no, no, no, no, no! I did'n mean it dat!** - said the Tiger felling anguish flooding his paranormal existence - **I meant dis! Pop!**
+**Oh! No, no, no, no, no, no! I did'n mean it like dat!** - said the Tiger felling anguish flooding his paranormal existence - **I meant dis! Pop!**
 
 A yellow flash materialised into an orb, hovering above Hannah's head.
 
-**Ah good, you've a blessing. If is alrite with you I'll go to da next. Sorry to boder you** - said the Tiger, feeling relief and thinking - *Even if dis girl didn't have a blessing. She has lots of attitude to talk about her.*
+**Ah good, you've a blessing. If is alrite with you I'll go to da next. Sorry to boder you** - said the Tiger, feeling relief and thinking - *Even if dis girl didn't have a blessing. She has so much attitude dat I wouldn't dream on taking her to da trial.*
 
-*"This trial feels a little bit more like an interview!"* - said Amir in an attempt to lighten the mood.
+*"This thing feels a little bit more like an interview than a trial!"* - said Amir in an attempt to lighten the mood.
 
 **Oh? I fought you were not paying attention** - said the Tiger, amazed at Amir's remark.
 
 *"Paying who?"* - Amir continued to joke, feeling relief the Tiger was such a jolly fellow.
 
-**Ha ha, dats a good one.** - replied the Tiger - **But tell me, what do you have to show for?**
+**Ha ha, dats a good one.** - replied the Tiger - **But tell me, wut do you have to show for?**
 
-Amir's flame sunk deep into his chest as the words echoed in his ears - *"What do I have to show?"*
+Amir's flame sunk deep into his chest as the words carefully navigated into his inner ears - *"What do I have to show for?"*
 
- **Yeh... You've no blessings... Why should I fink you are wordy of mine?** - replied the Tiger.
+ **Yeh... You've no blessing... Why should I fink you are wordy of mine?** - replied the Tiger.
 
 Amir felt in a tough spot. Feelings of guilt rushed through his entire body as he remembered the time Sam almost fell into the void because his carelessness. He remembered Hannah's anger piercing through the air like daggers shot with a tank, if there was such a think in this world. The more he searched, the more he felt an external force squeezing his flame. In the awkward silence he deviated a glance towards Sam.
 
@@ -182,11 +182,11 @@ Amir froze thinking about this phrase. He remembered how Sam came to rescue them
 
 "We got out of Earth thanks to him!" - added Hannah.
 
-*"And almost got you killed"* - replied Amir simply.
+*"And almost got you killed"* - replied Amir falling deeper into depression.
 
 *"Nothing in there was real!"* - argued Sam.
 
-**Everything in here is real, child** - intervened the Wolf - **If you found strength and courage by thinking there is no risk, fine by us, but the risk here is real!**
+**Everything in here is real, child** - intervened the Wolf - **If you found strength and courage by thinking there is no risk to your actions, fine by us, but the risk here is real!**
 
 *"But... the girl told me it isn't!"* - Sam replied.
 
@@ -202,7 +202,7 @@ Those words destroyed whatever little confidence Amir had in himself.
 
 *"And then what?"* - asked Hannah challenging the value of the test.
 
-**If he got what I want, I'll let him go.** - replied the Tiger.
+**If he got wut I want, I'll let him go.** - replied the Tiger.
 
 *"If he doesn't?"* - Hannah felt for the very first time since she left the Earth's trial, terror. The image of Amir's face turning into stone flashed momentarily.
 

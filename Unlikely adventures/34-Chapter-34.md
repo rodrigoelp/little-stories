@@ -290,11 +290,11 @@ The originally amorphous shape restructured itself into a large crouching-person
 
 The twisted Amir raised his hands. A horde of Sams and Hannahs appeared from the shadows, running straight at the golem whilst Amir climbed on the golem's hand.
 
-The golem moved its feet, launching up in the air countless members of the horde. Amir moved his hand commanding the golem to capture the other Amir. The golem followed his orders, grabbing the twisted Amir effortlessly whist keeping the horde of copies far away.
+The golem moved its feet, launching up into the air countless members of the horde. Amir moved his hand commanding the golem to capture the other Amir. The golem followed his orders, grabbing the twisted Amir effortlessly whist keeping the horde of copies far away.
 
 *«So you have decided to squash me like a bug? I have news for you, I'll come back!»*
 
-Amir jumped onto the other hand of the golem and hugged his twisted version - *"Right now I can't win against you. I just have to accept you live with me."*
+Amir jumped onto the other hand of the golem and hugged his twisted version - *"Right now I can't win against you. I just have to accept you live within me."*
 
 *«Ah, bastard... I wanted a fight.»* - Poof! The horde of clones vanished in a cloud of dust.
 
@@ -304,13 +304,13 @@ The golem checked its hand, surveying the location of its target. It had disappe
 
 They stood there in silence. Amir shook his robe a few times to get rid of the excess of sand. The Tiger stood erect as straight as possible, he wanted to see if he was taller than the golem.
 
-*"... So, what now?"*
+Amir waited a few seconds, watching the Tiger stand on its hind legs in an attempt to surpass the golem's height. Amir had opened a burst of light would appear with the desired blessing - *"... So, what now?"*
 
 **Well boy, I didn't want to tell you, but courage is not somefing I can give out. You must find it in you, you see?**
 
 *"Oh, I see"* - said Amir feeling somewhat disappointed - *"I guess, I've failed this trial."*
 
-**Dat would be the logical concussion if you don't have da lite.**
+**Dat would be da logical concussion if you don't have da lite.**
 
 *"Mister Tiger, could I ask a favour of you?"*
 
@@ -318,9 +318,11 @@ They stood there in silence. Amir shook his robe a few times to get rid of the e
 
 *"Could you hug Sam and Hannah and tell them I am sorry?"*
 
-The Tiger nodded. Amir looked down, the golem slowly began losing its sand to the ground, fading from view.
+The Tiger nodded.
 
-**Oi boy, I fink you have a little bit of dust right here** - said the Tiger, blowing at Amir's chest. The white flame on his chest flickered brightly, holding on for dear life to its owner. It flicked twice and began glowing red - **Yeh, dats much better.**
+Amir looked down as the golem slowly became undone, losing its sand to the ground, fading from view into the ground.
+
+**Oi boy, I fink you have a little bit of dust rite here** - said the Tiger, blowing at Amir's chest. The white flame on his chest flickered brightly, holding on for dear life to its owner. It flicked twice and began glowing red - **Yeh, dats much better.**
 
 *"What happened? Why is it doing this?"*
 
