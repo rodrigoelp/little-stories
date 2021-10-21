@@ -62,7 +62,7 @@ The Tiger tried to remember someone matching that description, it has been centu
 
 *"I don't know... the other spirits were very scary."*
 
-**Do you want me to be scary? I can make you very scary!** - said the Tiger raising his hands. The ground shook and plumes of fire danced a few inches above the ground shaping up like unknown creatures.
+**Do you want me to be scary? I'll show you scary!** - said the Tiger raising his hands. The ground shook and plumes of fire danced a few inches above the ground shaping up like unknown creatures.
 
 *"Oh no, I was just wondering if there was more to this trial"*
 
