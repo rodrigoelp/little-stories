@@ -122,5 +122,5 @@ The Tiger extended his very large paw, Amir had no idea how to wrap his hand aro
 
 Amir followed the order and climbed on it as best as he could; it was a strange feeling, the flames felt quite real, but it was coarse, like touching the fur of a very large and wild cat, not that Amir has ever touched a cat.
 
-**Remember to stay quiet. I don want to get lost again.** - said the the large feline before it flared on, breaking into full speed a gallop into the darkness. Its intense red light grew smaller and smaller, until it resembled a miniature star pulsating before it went in a ‘whooshhh’.
+**Remember to stay quiet. I don want to get lost again. If you open yer mouth I'll leave ya on da side of da road. Now hold on!** - said the the large feline before it flared on, breaking into full speed a gallop into the darkness. Its intense red light grew smaller and smaller, until it resembled a miniature star pulsating before it went in a ‘whooshhh’.
 

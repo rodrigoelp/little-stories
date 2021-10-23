@@ -1,12 +1,12 @@
 # Ignition
 
-The flames roared around Amir, clouding his view from anything around him.
+Flames roared loudly around Amir, clouding his view from anything around him. He felt like a meteor burning up in an intangible and unpalatable atmosphere.
 
 *"Mister, are you still there?"* - Amir clenched his fingers hoping the pressure would tell him if he still had a firm grip on the Tiger.
 
 **Just a moment. We are 'bout to get der** - Amir registered the voice from inside his skull.
 
-The bright light kept Amir completely disoriented. He didn't know if they were travelling, standing or what. He only knew his body was squeezed through a narrow passage of bright red and orange light.
+The bright streaks of light kept Amir completely disoriented. He didn't know if they were travelling, standing or what. He only knew his body felt like it was squeezed through a narrow passage of bright red and orange flames.
 
 **Oh... one sec...** - said the Tiger.
 
@@ -14,9 +14,9 @@ The flames around Amir shone brighter than before, streaks of yellow painted biz
 
 *"How come the flames aren't burning me?"* - asked Amir.
 
-**Huh?** - said the Tiger as Amir broke his concentration - **Flames do not burn da children of da lite... Where was I? Oh yeh, dis way...**
+**Huh?** - said the Tiger as his primary focus was deviated by Amir's question - **You should know dat; flames do not burn da children of da lite... Where was I? Oh yeh, dis way...**
 
-Amir had noticed the raging flames acquired a degree of tranquility when he Tiger replied one of his questions. Amir couldn't figure out if he was holding the Tiger's hand - *Was I holding with my right or with my left?* - The bright orange light changed slowly to deep reds.
+Amir had noticed the raging flames acquired a degree of tranquility when he Tiger replied one of his questions. He couldn't figure out if he was holding the Tiger's hand, grabbing to his garments or being tossed through the air - *Was I holding him with my right hand or was it my left?* - The bright orange light changed slowly to deep reds.
 
 *"Yellow and red goes really well together, huh?"* - asked Amir.
 
@@ -64,7 +64,7 @@ The flames raged on, but the composition of the flames changed slowly from the w
 
 **Da one you use to hide your biggest fears!** - answered the Tiger, instants before the plasma blinding Amir's field of view became clear, giving him for the first time a panorama of the action.
 
-Amir rode the Tiger all the way down to the ground. Each metre closer to the ground welcomed them with a black fog becoming denser and denser.
+Amir rode the Tiger all the way down to the ground, and by rode, Amir was riding a large feline creature covered in black and orange stripes wearing the mask of the Tiger. Each metre closer to the ground welcomed them with a black fog becoming denser and denser.
 
 A gentle crunch let Amir know the Tiger had landed on the ground. The fog had become so thick they couldn't see farther than a few feet ahead from them. Even the flames of the Tiger seemed to choked by the nothingness around them.
 
@@ -76,31 +76,33 @@ The Tiger opened his mouth expelling large streams of flames that quickly vanish
 
 *"What should I do know?"* - Amir remained unsure, he hoped the trial consisted on walking around in a maze, swimming on some sort of cold water or whatever Sam had to do with the little girl.
 
-**It is all different, ya know?** - the Tiger was noticeably apprehensive, adrenaline rushed through his phantasmagorical being - **Some times it is really tall places; some oder times is an animal chasing ya. Once it was a buggy monster, it was rader strange dat one... da kid had no bed!**
+**It is all different to each guy, or girl I bring here, ya know?** - the Tiger was noticeably apprehensive, adrenaline rushed through his phantasmagorical being - **Some times it is really tall places; some oder times is an animal chasing ya. Once it was the buggy monster, it was rader strange dat one... da kid had no bed!**
 
-Amir imagined a monster with four large wheels, then his brain found the matching homophone for boogie. A large ‘gulp’ made the Tiger turned to look at Amir - **You shoulda worn brown pants.**
+Amir imagined a monster with four large wheels instead of limbs, then his brain found the matching homophone for boogie. A large ‘gulp’ made the Tiger turned to look at Amir - **Now dat I fink bout it, you shoulda worn brown pants.**
 
-*"Why? Are the monsters afraid of it?"* - queried Amir, fixated on any unknown beyond his line of sight.
+*"Why? Are the monsters afraid of those pants?"* - queried Amir, fixated on any unknown beyond his line of sight.
 
-**Nah...** - answered the Tiger, an evil sort of cheeky smirk appeared on his feline face - **But it can hide quite any accident if you are too scared.**
+**Nah...** - answered the Tiger, an evil sort of cheeky smirk appeared on his feline face - **But it can hide quite well any accident if you get too scared.**
 
 *"Huh?"* - it was virtually impossible for Amir to understand the Tiger. His digestive system was used to processing plasma, which is extremely convenient at times.
 
 **Fur now, calm your imagination down** - said the Tiger as he walked straight into the darkness without Amir noticing - **Da worse fings you imagine, da worse it will be.**
 
-Amir turned to the fading voice of the Tiger, the spirit had disappeared into the thick black fog - *"Mr Tiger???"*
+*"Thanks for giving me more ideas"* - replied Amir whilst trying to find the Tiger. He turned to the last known location of the fading voice of the Tiger, the spirit had disappeared into the thick black fog - *"Mr Tiger???"*
 
-The silence greeted Amir with indifference.
+The silence greeted Amir with indifference, it knew it couldn't reply, otherwise it had to deal with paradoxical consequences.
 
 Amir stood right in the middle of the darkness, or perhaps he was at three quarters of it, he wouldn't know.
 
 *"Hello?"* - he checked again. Somehow, being in this visually deprived environment exalted some of his other senses, like the sense of hearing told him there was absolute silence.
 
-*"I just want to say, I AM NOT AFRAID, ok?"* - yelling part of the sentence made him feel someone was going to listen to it, it was reassuring, or it was reassuring until he remembered he doesn't know what is lurking in the shadows - *"Not afraid! Not at all... so, if Mister Monster-who-might-jump-out-of-nowhere-and-rip-my-head-off tries to do anything I can tell you... I am very prepared because Mr Tiger warned me! Ok?!?"*
+*"I just want to say, I AM NOT AFRAID, Ok?"* - yelling part of the sentence made him feel someone was going to listen to it, it was reassuring, or it was reassuring until he remembered he doesn't know what is lurking in the shadows - *"Not afraid! Not at all... so, if Mister Monster-who-might-jump-out-of-nowhere-and-rip-my-head-off tries to do anything I can tell you: I am very prepared because Mr Tiger warned me! Ok?!?"*
 
-Amir was glad it was this dark, at least he couldn't see his hands shaking. He spun around in an attempt to find the reflective amber eyes of the Tiger - *"Mr Tiger? I feel my courage would be tested a lot better if you stand next to me!"*
+Amir was glad it was this dark, at least he couldn't see his hands shaking. He spun around in an attempt to find the reflective amber eyes of the Tiger - *"Mr Tiger? I feel my courage would be tested a lot better if you stand next to me! You know... for observational purposes!"*
 
-Amir awaited for horrible creatures to pounce out of the darkness with razor sharp teeth and a split tongue spilling acid, but nothing jumped out, nothing attacked him. Standing there, in the middle, or maybe at three quarters, of nowhere was the most difficult part.
+The Tiger didn't reply.
+
+Amir awaited to horrible creatures to pounce out of the darkness with razor sharp teeth and a split tongues spilling acid, but nothing jumped out, nothing attacked him. Standing there, in the middle, or maybe at three quarters, of nowhere was the most difficult part.
 
 Amir didn't like spending that much time with his own thoughts.
 
@@ -122,9 +124,9 @@ It didn't take long before he could make the contour of the figure, it resembled
 
 *"Hannah?"* - Amir felt confused at the apparition.
 
-Every step Amir took getting closer to the statue revealed the delicate features on it. It was a statue of Hannah, her face was covered by several deep cracks and granules fell onto the ground.
+Every step Amir took to get closer to the statue revealed intricate features on it. It was Hannah, her face was covered by several deep cracks and parts of her skin decomposed into granules that fell onto the ground.
 
-Hannah's statue embraced herself with her scarred arms - *"You didn't protect me"*
+Hannah's statue embraced herself. There he saw her arms covered in scars - *"You didn't protect me"* - she said.
 
 *"W...what happened?"* - asked Amir, unsure of what was going on.
 
@@ -268,19 +270,23 @@ The Tiger's gaze switched between one Amir to the other. The Amir under him seem
 
 *"Fought as in fight?"* - queried Amir getting a little bit confused.
 
-**No... fought as in I have foughts. Like I am finking.** - clarified the Tiger. The thought reached the inner insecurities of the Tiger - **Oi! Are you making fun of me?**
+**No... fought as in I have foughts, you have foughts. Like I am finking.** - clarified the Tiger. The thought reached the inner insecurities of the Tiger - **Oi! Are you making fun of me?**
 
 *«Are you going to buddy up with this creature as well? Will you leech his life too?»*
 
-**Ah, jokes onya** - replied the Tiger - **I'm already dead.**
+**Ah, jokes onya** - replied the Tiger - **I'm passed my perspiration date.**
 
-*"I don't think he meant that..."* - reflected Amir.
+*"I don't think he meant that..."* - reflected Amir, getting used to translate Tigerish to a language he could understand.
 
-The Tiger looked up, it was the typical gesture of ‘searching on my personal memory database’ as he remembered the last few events - **Oh, wait... I get it.**
+The Tiger looked up, it was the typical gesture of ‘searching in my personal memory database’ as he remembered the last few events - **Oh, wait... I get it.**
 
-*«You do not have the straight to fight me»*
+*«You do not have the strength to fight me»*
 
-*"Maybe, but I'll try."*
+*"Maybe, but I'll try."* - replied Amir with conviction.
+
+«You are too indecisive»
+
+*"I am not!"* - He added - *"Or maybe I am. No! Definitely no! Maybe?"*
 
 *«You are a coward»*
 
