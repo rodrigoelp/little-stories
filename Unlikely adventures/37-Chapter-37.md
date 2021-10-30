@@ -212,7 +212,7 @@ Memories flooded Amir's present and finally looked at Sam straight on. Sam's eag
 
 *"Oh dear, NO! NO... NO... NO... NO... No, no...."* - emphatically reiterated Amir - *"UH huh, nope. That is N.O.P.E: Nope."*
 
-*"Hey, I get it, you don't have to say it that much"* - said Sam. There was a strange hint of resentment that lingered stating to the air ‘Do not worry, I am not interested that way, but at times it feels nice knowing I got options even if I never want to use them’ sort of feeling.
+*"Hey, I get it, you don't have to say it that much!"* - said Sam. There was a strange hint of resentment that lingered stating to the air ‘Do not worry, I love you in the most heterosexual way possible, but at times it feels nice knowing I got options even if I never want to use them’ sort of feeling.
 
 *"Yeah no. Don't take me wrong, I think you are a handsome bloke and all, but..."* - said Amir in an attempt to sound less offensive.
 
@@ -334,7 +334,7 @@ The Tiger's wrinkled forehead revealed the intense processing of the idea within
 
 ***In a twisted way, yes*** - confirmed the Wolf. His thoughts were interrupted Sam's and Hannah's giggles - ***Why are you laughing?***
 
-Hannah had come to understand that some people change as they grow, paradoxically others can grow without changing.
+Hannah had come to understand that some people change as they grow, paradoxically others can grow without ever changing.
 
 The Turtle and the Bat joined chorus of laughing children.
 
