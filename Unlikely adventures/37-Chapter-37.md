@@ -1,8 +1,8 @@
 # Warm closure
 
-Hannah's knee jiggled up and down, anxiety rushed though her body like anxiety would rush through someone expecting anything at any point in time and a narrator fails to describe the intricacies of that feeling that doesn't go away, in which you are panicking, the palm of your hands feel sticky and sweaty and for some reason, your stomach is trying to leave your body via your belly button.
+Hannah's knee jiggled up and down, anxiety rushed though her body like anxiety would rush through someone expecting anything at any point in time and a narrator fails to describe the intricacies of that feeling that doesn't go away, in which you are panicking filled with fear, the palms of your hands feel sticky, sweaty and for some reason, your stomach is trying to leave your body via your belly button.
 
-She watched where Amir stood up before the Tiger took him away and a blaze so bright that even the flames on the candles in the room got extinguished.
+She stared at the scorched marks left behind by the Tiger, right where he took Amir away in a blaze so bright that even the dancing flames at the top of the candles decorating the room went extinguished.
 
 *"And you guys really don't know what is going on?"* - asked Sam to the slightly annoyed spectres playing a game of cards.
 
@@ -142,7 +142,7 @@ Hannah blushed - *"Yes, I... I'm sorry."*
 
 It may have been caused by the hypoxia, or the state of euphoria Amir was in, but it took him six full seconds for the words to reach the conscious part of his brain - *"... almost done? I thought we finished it back there!"*
 
-The Tiger turned the focus of his bright yellow eyes towards Amir, it was the sort of gaze making you feel totally naked; and it wasn't the good sort of naked, it was the sort of naked you feel when you are dreaming you visited your boss' new house and somehow the place you used to change into your swimming suit is now located in the middle of a train station and there are a million people staring at you sort of thing.
+The Tiger turned the focus of his bright amber eyes towards Amir, it was the sort of gaze making you feel totally naked; and it wasn't the good sort of naked, it was the sort of naked you feel when you are dreaming you visited your boss' new house and somehow the place you used to change into your swimming suit is now located in the middle of a train station and there are a million people staring at you sort of thing.
 
 **Da real test is here and now** - said the Tiger. He paused a second before his gaze drifted between to Sam and Hannah - **Face your fears, leave no room for it to hide.**
 
