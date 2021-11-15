@@ -4,7 +4,7 @@
 
 
 
-*"... it hurts, doesn't it?"* - said a female voice from above - *"I never liked failing this trial. Never got used to the cold water."*
+*"... it hurts, doesn't it?"* - said a soft female voice from above - *"I never liked failing this trial. Never got used to the cold water."*
 
 
 
