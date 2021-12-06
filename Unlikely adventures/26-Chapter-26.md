@@ -62,7 +62,7 @@ Yule smiled slightly to Paul's words - *"Yes, it has been a while since we did i
 
 *"The four of us were unstoppable. Tere got the water's blessing, I got earth's, you air's and Charlie..."* - Paul stopped the phrase halfway. Yule's sweet smile had been erased, her pose had contracted, withdrawn under her pink wings; her face barely visible. Her expression brought past memories to Paul's present telling him it was best to suspend the current conversation - *"I... I'm sorry, you know? I just remembered we had some pretty great days..."
 
-*"I know Paul, it has been a long time since we returned to Dawn, isn't?"* - commented Yule in an attempt to compose herself - *"In those days you were always so serious and stressed. Theresa teased you for anything."
+*"I know Paul, it has been a long time since we returned to Dawn, wasn't it?"* - commented Yule in an attempt to compose herself - *"In those days you were always so serious and stressed. Theresa teased you for everything you said and did."
 
 *"Yeah. Thanks to Tere I got my cool and thick skin, you know?"* - continued Paul the train of old memories.
 
@@ -72,9 +72,9 @@ Paul turned around and found Mathias bent over, his hands rested on his knees. H
 
 *"Wow Matt, what happened to you?"* - added Paul.
 
-Mathias felt uncomfortable with his sweaty persona, he spread his wings in an attempt to cool down. His expression told Paul that he might be responsible. Mathias continued to struggle for few more instants before he managed to say - *"Wha...h happn... me? H..how... are... you... so bloody f... fast?"*
+Mathias felt uncomfortable with his sweaty persona, he spread out his wings in an attempt to cool down. His expression told Paul that he might be the responsible. Mathias continued to struggle for few more instants before he managed to say - *"Wha...h happn... me? H..how... are... you... so bloody f... fast?"*
 
-*"Fast? That wasn't fast, you know?"* - explained Paul - *"When I go fast I don't do woosh! I just go Ka-thumb pow!"* - his gesturing could have been interpreted as a missile leaving the ground up to interstellar space.
+*"Fast? That wasn't fast, you know?"* - explained Paul - *"When I go fast I don't do whoosh! I just go Ka-thumb pow!"* - his gesturing could have been interpreted as a missile leaving the ground up to interstellar space.
 
 *"Huh?"* - said Mathias battling to comprehend. His oxygen-deprived brain tried to kick into action to decipher Paul's comment. It was unsuccessful.
 
@@ -102,11 +102,11 @@ Yule rolled her eyes - *"Thanks Paul, that was helpful."*
 
 *"**I** will stay here a little longer. I want to be indulged by the placid atmosphere in this temple"* - she commented whilst the focus of her attention shifted from the intricate details on the wall to the decoration around the temple and finally back on Mathias.
 
-Mathias examined Yule's stare in an attempt to figure out her inner workings, then looked at Paul and said - *"Do you always pick stray dogs?"*
+Mathias examined Yule's stare in an attempt to figure out her inner workings, then looked at Paul and said - *"Do you always pick little stray dogs?"*
 
 Paul's expression changed to cheerful expectation - *"Are there puppies here?"*
 
-*"No Paul, he means picking up the children we saw entering the trial"* - Yule
+*"No Paul, he means picking up the children we saw entering the Cave of Prophecies"* - replied Yule.
 
 *"Ah! the little dudes. Right..."* - replied Paul, his head bobbing up and down.
 
@@ -118,13 +118,13 @@ Paul's expression changed to cheerful expectation - *"Are there puppies here?"*
 
 Mathias felt slightly uncomfortable with the memory if his previous group and tried to push it aside in an attempt to find an answer - *"Well? Are you picking up these moths?"*
 
-*"I think they have their own group, I just want to chat with them."* - replied Yule with her usual calmness - *"Besides, does it bother you if I do?"*
+*"I think they have their own ‘gang’, I just want to chat with them."* - replied Yule with her usual calmness - *"Besides, does it bother you if I do?"*
 
 *"No... why would it?"* - replied Mathias dismissively - *"But, I thought we took decisions as a group and I don't remember you asking anybody"*
 
 *"Paul, is it a problem for you?"* - asked Yule.
 
-*"What is?"* - replied Paul trying to remember the last few seconds of conversation - *"Oh yeah, the little dudes? Nah, they look fun."*
+*"What is?"* - he replied, trying to remember the last few seconds of conversation - *"Oh yeah, the little dudes? Nah, they look fun."*
 
 *"Would Theresa mind if they join us?"* - continued Yule in an attempt to demonstrate her point.
 
@@ -162,9 +162,11 @@ After some consideration, Mathias just managed to say - *"If that is what you wa
 
 Mathias wasn't certain, but he thought there was a 'kaathumb' sound as soon as Paul launched himself up into the sky. He moved with unnatural speed towards the clouds to the side of the temple and went off view a few seconds later.
 
-Mathias was conflicted with the current predicament. He wanted to seek adventures and enjoyment as opposed to spending long boring days waiting for some random children to come out of the cave. The little voice of his consciousness told him he envied the attention Yule had dedicated to the newcomers, he quickly shook the thought off his mind - *"I can't say I know you as well as Paul or Theresa but, you always look so lonely."*
+Mathias was conflicted with the current predicament. He wanted to seek adventures and enjoyment as opposed to spending long boring days waiting for some random children to come out of the cave. The little voice of his consciousness told him he envied the attention Yule had dedicated to the newcomers, he quickly shook the thought out of his mind - *"I can't say I know you as well as Paul or Theresa but, you always look so lonely."*
 
-Mathias did not expect Yule's sweet reaction. She gently turned to take a deep look into Mathias eyes, her pinkish lips drawn into a light smile - *"Alone my dear Mathias, I might be alone but never lonely. These are two different things. I like to be with my own thoughts and to achieve that I need solitude."* - Her words were filled with an invisible candour. He knew the others followed her out of respect but, it was at this precise moment that he understood the quality of her persona; she wasn't the strongest, fastest or overall more capable to lead others. She just had a certain... something that made you want to follow her until the end of the world.
+Mathias did not expect Yule's sweet reaction. She gently turned to take a deep look into Mathias eyes, her pinkish lips drawn into a light smile - *"**Alone** my dear Mathias, I might be alone but never lonely. These are two different things. I like to be with my own thoughts and to achieve that I need solitude."* - Her words were filled with an invisible candour.
+
+He knew the others followed her out of respect but, it was at this precise moment that he understood the quality of her persona; she wasn't the strongest, fastest or overall more capable to lead others. She just had a certain... something that made you want to follow her until the end of the world.
 
 He watched her return to her study of the pond. He tried to double down on his enquiry - *"Are you sure you want to stay here?"*
 
@@ -178,13 +180,13 @@ He watched her return to her study of the pond. He tried to double down on his e
 
 *"But you may ask another question if you like."* - she replied absently.
 
-Mathias felt the envy bug eating him away, his curiosity was overflowing with thirst and he was going to quench it now - *"Why wait?"* - He waited for a moment. Yule didn't seem to acknowledge the question so he followed it - *"Why wait for these moths? We have seen many on our way here, you didn't stop for any one of them. So why these?"*
+Mathias felt the envy bug eating him away, his curiosity was overflowing with thirst and he was going to quench it now - *"Why wait?"* - He paused for a moment, listening to the silence around them. Yule didn't seem to acknowledge the question so he followed it - *"Why wait for these moths? We have seen many on our way here, you didn't stop for any of them. So why these?"*
 
 Yule's gaze lifted from the pond up to the skies, she wondered about his question, finally answering - *"I guess, they caught my eye."*
 
-Mathias wasn't satisfied with this answer, it was as good as answering ‘just because’. He tried to press on and get a proper answer - *"These past few months I met you, I have never seen you do that for anybody. Many others have asked for our help or guidance, you sent them away. Why them?"*
+Mathias wasn't satisfied with this answer, it was as good as answering ‘just because’. He tried to press on and get a proper answer - *"These past few months I've met you, I have never seen you do that for anybody. Many others have asked for our help or guidance, you sent them away. Why them?"*
 
-*"Is that another final question?"* - replied Yule. Her soft voice was adorned with dangerous harshness - *"I am afraid you have run out of final questions for now. Perhaps you should try to catch up with Paul while you can."*
+*"Is that another final question?"* - replied Yule. Her soft voice was adorned with dangerous harshness - *"I am afraid you have run out of ‘final questions’ for now. Perhaps you should try to catch up with Paul while you can."*
 
 Mathias remained awkwardly observant of Yule's back. He wanted answers - *"But..."*
 
@@ -198,4 +200,4 @@ He extended up his bright red wings in an attempt to gather as much propulsion a
 
 *"Thirty-five degrees to your right in straight line, that's where Paul will be waiting for you."* - she added.
 
-Mathias turned once more to watch Yule's back. He was puzzled about how she knows these sorts of things. He flapped with all his might and took up to the skies.
+Mathias turned once more to watch Yule's back. He was puzzled about how she knew those sorts of things. He flapped with all his might and took up to the skies.
