@@ -254,5 +254,5 @@ The Turtle looked at the Wolf, she was somewhat resented for the lack of support
 
 *And why is that?* - asked the Spider.
 
-The Wolf pointed at the staff drifting away of their dimensional pocket - ***I believe it decided to go somewhere else.***
+The Wolf pointed at the staff drifting away from their dimensional pocket - ***I believe it decided to go somewhere else.***
 

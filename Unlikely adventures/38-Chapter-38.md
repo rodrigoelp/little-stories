@@ -12,7 +12,7 @@ The reverberation of the laugher echoing through the chamber had calmed down, re
 
 The Turtle had engaged Hannah, with the latter looking noticeably uncomfortable. Chances were the Turtle, being a lover a gossips and rumours, asked Hannah if she had already hold hands or kissed Amir.
 
-She browsed some more the scene playing out below, the Bat and the Tiger praised Amir for his performance in the trial of fire. Well, in pure honestly, Amir praised himself whilst the Bat suspicious stare examined the Tiger.
+She browsed some more the scene playing out below, the Bat and the Tiger praised Amir for his performance in the trial of fire. Well, in pure honestly, Amir praised himself whilst the Bat's suspicious stare examined the Tiger.
 
 *Ah, that's a face I haven't seen in a while* - Yule reminisced on the last time she saw the Tiger. They were all dragged to the distant realm of the Tiger, were he made them walk spaces filled with darkness, dragons of smoke and fire, and visions of their future. The memory itself wasn't pleasant, it was the company she had at the time that made the whole experience better. Her sweet smile slowly faded as she recalled the last bearer of the fire blessing.
 
@@ -22,13 +22,13 @@ The trance was broken with the booming voice of the Wolf - ***Children, thy shal
 
 The Tiger seemed relieved about his decision of evaluating Amir **alone**.
 
-***Thy shall remain silence unless I grant permission to thee*** - snarked the Wolf - ***... Please.***
+***Thy shall remain silent unless I grant permission to thee*** - snarked the Wolf - ***... Please.***
 
 The tone sent a clear message to Hannah. She wanted to argue, but her judgement advised her not to, and joined the boys around the pillar bathed by the thin stream of light sipping though the cracks.
 
 ***What doth thee seeth?*** - added the spectre in his ample wisdom; wisdom that failed to forecast easily distracted children wouldn't be able to understand the context of his words - ***Bid me what doth thee seeth in this location.***
 
-Amir wanted to state the obvious, the first one being the Wolf's way of talking was becoming increasingly difficult to understand. The second point he wanted to mention was his observation of a large vertical rock with four glowing glyphs and the riddle on its side describing some of the trials ahead. He found the analytical gaze of Hannah, studying the monolith in detail and judged it was better to way for her point of view.
+Amir wanted to state the obvious, the first one being the Wolf's way of talking was becoming increasingly difficult to understand. The second point he wanted to mention was his observation of a large vertical rock with four glowing glyphs and the riddle on its side describing some of the trials ahead. He found the analytical gaze of Hannah, studying the monolith in detail and judged it was better to wait for her point of view.
 
 Each symbol on the stone shone with the colour of the blessing given to them, or so observed Hannah - *"It is the progress of our journey"* - she beamed after a few seconds, convinced her answer was the most appropriate for the occasion.
 
@@ -40,11 +40,11 @@ The Wolf's immutable expression wasn't much to go by, yet he nodded in return to
 
 *"Nah, I don't think I am looking in the wrong direction..."* - Sam was brought back to the current world around him, his gaze floated from Hannah, then Amir and finally, on the Wolf's lupine eyes - *"I think I am starting to understand."*
 
-***Understand?*** - replied the Wolf, suddenly feeling interested on Sam - ***Understand what?***
+***Understand?*** - replied the Wolf, suddenly feeling interested in Sam - ***Understand what?***
 
-*"Why wolves howl with such immense dedication at the beautiful moon"* - he answered - *"Its shine filters through the narrow space with its silvery beams. You lose the passage of time, almost as if the sound around you just goes away, leaving that ba-thump, ba-thump. That sound of your flame beating in the stillness of the night, the rhythm of its energy flowing through your body rocking you gently back and forth; like something special is about to happen."*
+*"Why wolves howl with such immense dedication at the moon's infinite beauty"* - he answered - *"Its shine filters through the narrow space with its silvery beams. You loose the passage of time, almost as if the sound around you just goes away, leaving that ba-thump, ba-thump. That sound of your flame beating in the stillness of the night, the rhythm of its energy flowing through your body rocking you gently back and forth; like something special is about to happen."*
 
-Yule lips curved up to render a sweet smile, Sam's words didn't seem to be crafted to impressed those attentive and the receiving end, he just let his little flame take control over his tongue, it just flowed from within him.
+Yule's lips curved up to render her sweet smile, Sam's words didn't seem to be crafted to impressed those attentive at the receiving end, he just let his little flame take control over his tongue, it just flowed from within him.
 
 Sam noticed everything around him had quiet down, perplexed once more with the silver light squeezing itself down to his eyes. The Wolf had joined Sam in his adoration to the simple delicacies in life.
 
@@ -54,7 +54,7 @@ Sam noticed everything around him had quiet down, perplexed once more with the s
 
 *Yet, you failed to sense me coming...* - replied the Spider - *What's trapped your interest?*
 
-*"Sssh"* - replied Yule annoyed at the Spider, she the ability to dig her rhetorical fingers a little too much on her nerves. Yule pointed down to invoke a futile distraction from her own intrusion - *"I want to listen what is going on."*
+*"Sssh"* - replied Yule annoyed at the Spider, she had the ability to dig her rhetorical fingers a little too much on her nerves. Yule pointed down to invoke a futile distraction from her own intrusion - *"I want to listen to what is going on."*
 
 Almost as on cue, the world below the Spider and Yule had come to a stop, where all the spectators watched the Wolf and Sam mesmerised with the glistening light embracing them. The silence made everything awkward, primarily to Yule who didn't want to turn to face the cheeky grin of the Spider rejoicing out of Yule's embarrassment. 
 
@@ -72,7 +72,7 @@ Words found a way to his throat and began to form a sentence, they had that inde
 
 Sam felt those lupine eyes drilling deeper, searching for an appropriate answer - *"I just feel it here"* - added Sam covering the little flame swivelling in his chest - *"I mean, the call."*
 
- The Wolf closed his eyes to savour the words before the present washed it away, but the moment was short lived; he remembered there was a path established for the children - ***Thee shall not follow this calling otherwise the training would be meaningless. Thee shall take the righteous path to Eden.***
+ The Wolf closed his eyes to savour the words before the present washed it away, it was short lived; he remembered there was a path established for the children - ***Thee shall not follow this calling otherwise the training would be meaningless. Thee shall take the righteous path to Eden.***
 
 Sam's mind remained absent from his surroundings, or so it seemed.
 
@@ -92,11 +92,11 @@ The Wolf was surprised by Sam's assertiveness, and the only way to answer assert
 
 ***Zero*** - finally answered the Wolf.
 
-Sam took a breath of fresh air. His thought felt clear - *"In that case, could you be honest with us and tell us what are we meant to find at the end and leave the ‘finding the way’ to us? Not much point of replaying the same script if we already know the answer."*
+Sam took a breath of fresh air. His thought felt clear - *"In that case, could you be honest with us and tell us what are we meant to find at the end and leave the ‘finding the way’ to us? Not much point of replaying the same script if we already know the outcome."*
 
 Sam's words echoed through the chamber. Yule didn't know how to react, as far as she has observed the Wolf isn't the chatty type of spectre.
 
-The words died out and silence took over, interrupted by the sporadic ‘poohink’ of droplets finding a pond of water after taking a leap of faith from a stalactite above.
+The words died out and silence took over, interrupted by the sporadic ‘poo-ink’ of droplets finding a pond after taking a leap of faith from a stalactite above.
 
 The Wolf pondered about the child in front of him. He felt odd, his face muscles moved for the first time in a few millennia to draw a soft smile.
 
@@ -110,7 +110,7 @@ The Wolf slowly turned from staring at the moon, pensive of the past years and t
 
 **Den why not say dat?** - complained the Tiger - **No point talking in a weird way, rite? He always get me cone-fused.**
 
-The Turtle wanted to correct the Tiger, but she let the irony go - *What's in your mind dear Wolf?*
+The Turtle wanted to correct the Tiger, but she let the irony go by - *What's in your mind dear Wolf?*
 
 The Wolf cleared his throat, it required dedication to not fall into old habits - ***I remember the days when our lives where blank canvasses, we were ideas without shape, until we filled the role to guide others. We were explorers, then teachers and right until now, we had forgotten a great life lesson: Some people are born to break the mold.***
 
@@ -124,7 +124,7 @@ Hannah rolled her eyes and returned her attention to the pair bathed in moonligh
 
 *"I've never seen him this serious"* - Hannah overheard the Bat's commentary.
 
-The Wolf relaxed his grip from Sam and pushed himself up, looking straight into the the crack from which the light sipped through. He brought his left hand towards his chest and tapped the flame encased in his centre. The flame blazed on in a pure white, almost silvery light, then he extended his hands to welcome something from above. Through the crack on the ceiling, a silver orb began to descend towards the hands of the Wolf, where it floated a few inches from touching him.
+The Wolf relaxed his grip of Sam and pushed himself up, looking straight into the crack from which the light sipped through. He brought his left hand towards his chest and tapped the flame encased in its centre. The flame blazed on in a pure white, almost silvery light, then he extended his hands to welcome something from above. Through the crack on the ceiling, a silver orb began to descend towards the hands of the Wolf, where it floated a few inches from touching him.
 
 Sam could see the Wolf's eyes had changed colours to resemble the orb floating on his hands.
 
@@ -132,19 +132,19 @@ Sam could see the Wolf's eyes had changed colours to resemble the orb floating o
 
 *"What's happening? I don't remember Wolfie doing this when it was our turn."* - asked Yule, watching in expectation the events with the same expression a reader would have if they found out their favourite book had changed its ending.
 
-The Spider uncovered her mouth, she wasn't expecting this result either - *It is hard to explain, but I think Wolf believes your friends might have a real chance of changing everything.*
+The Spider uncovered her mouth, she wasn't expecting this result either - *It is hard to explain, but I think Wolf trusts your friends might have a real chance of changing everything.*
 
 Yule heard the shaken voice of the Spider, it was strange for the Spider and to anything else which isn't alive to be shaken by the affairs of the living - *"Is everything alright?"*
 
-*I believe you know about the spell casted on these lands to lock the darkness away* - began explaining the Spider - *That same spell locked every single star child away as well. We were fortunate at the time the Wolf casted his own to lock us in here. You are seeing it right there, on his hands.*
+*I believe you know about the spell casted on these lands to lock the darkness away* - began explaining the Spider - *That same spell locked every single star child away as well. We were fortunate at the time the Wolf casted his own power to lock us in here. You are seeing it right there, on his hands.*
 
-Yule stared at the silver orb hovering on the Wolf's hands. It resembled a snow globe, if the snow globe looked like a tiny moon with frosting covering sections of it - *"And he is giving it away to Sam?"*
+Yule stared at the silver orb hovering on the Wolf's hands. It resembled a snow globe, if the snow globe looked like a tiny moon with frosting covering sections of it and a thin atmosphere encasing it all - *"And he is giving it away to Sam?"*
 
 The Spider nodded.
 
 Yule scanned the room below her. Sam was fixated on the miniature moon, Hannah and Amir mesmerised by the Sam and the Wolf surrounded by sand drifting in the air, glistening as if it was made of shiny metallic bits. Behind them, The Tiger embraced the Turtle whilst watching a moving scene for the first time. The Bat remained seated on the ground, both hands covering her mouth as if the action could hide her shock - *"But if the light goes with them, what will it happen to you?"*
 
-The Spider limited herself to hug Yule, it was a tight hug, the same type you would give to a family member before they embark in a long journey. In a way, it was heartbreaking. Yule wasn't much of a sentimental person, at least she hasn't been for a while now, right until this moment were she found herself wondering if she should break her rule.
+The Spider limited herself to hug Yule, it was a tight and firm, the same type you would give to a family member before they embark in a long journey. In a way, it was heartbreaking. Yule wasn't much of a sentimental person, at least she hasn't been for a while now, right until this moment were she found herself wondering if she should break her rule.
 
 
 
@@ -194,7 +194,7 @@ The Turtle finally leaned over, close to Sam's ear and whispered - *You are a su
 
 *"Receive the blessing of the Wolf?"* - asked Sam.
 
-*Changing his heart. That's not an easy task. Believe me, many have tried!* - clarified the Turtle, giving him a wink before she patted his head as well and leave him to the expecting Wolf.
+*Changing his heart. That's not an easy task. Believe me, many have tried!* - clarified the Turtle, giving him a wink before she patted his head as well and left him to the expecting Wolf.
 
 Sam walked to the Wolf still holding the glowing orb.
 
@@ -214,9 +214,9 @@ Sam opened his arms to receive the warm hug of the Wolf.
 
 *I believe this is the part where you go and get your friends out of this cave* - said the Spider to Yule's sorrowful stance.
 
-Yule saw Sam touch the cold surface of the silver orb. It bursted into fine myst which spiralled around Sam. It curved through the air sparkling through, finally finding its way to the centre of his chest, streaming into it like matter falling into a neutron star. When the last bit of it had disappeared, Sam, Amir and Hannah began to glow.
+Yule saw Sam touch the cold surface of the silver orb. It bursted into fine myst which spiralled around him. It curved through the air sparkling through, finally finding its way to the centre of his chest, streaming into it like matter falling into a neutron star. When the last bit of it had disappeared, Sam, Amir and Hannah began to glow.
 
-Behind them, Yule noticed the spirits shape become fuzzy and drifting up into the air. She turned immediately to find the Spider staring back at her, quickly vanishing into a myst dissolving into the air - *It was really good to see you once more.*
+Behind them, Yule noticed the spirits shape become fuzzy and drifting up into the air. She turned immediately to find the Spider staring back at her, quickly vanishing into a myst dissolving into the air - *It was good to see you once more.*
 
 Yule's little flame once again skipped a beat or two; her chest ached and throat left as if a large stone tried to climb up. She swore never to be weak again, but unfortunately for her, reason is not in charge of emotions. She broke down uncontrollably sobbing as she tasted once more the bitter taste of losing those you care about.
 
