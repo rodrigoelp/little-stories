@@ -4,13 +4,13 @@ Yule had found a crevice from which she could spy the action unfolding between t
 
 *"Yeah, you know... you never notice them unless you look. Some play a function in your nose and finally, it would hurt to take them out, but there will be a time when you just need to clench your butt and pull them out, right?"* - listened Yule to Sam's friend; she wondered about the context of such amusing and confusing conversation.
 
-She could see all the spirits burst in laugher, it reminded her about past days when she set her first foot steps on the cave's soft sand. It so frightening at the time, only to find comfort in the cleverness and cheekiness of her companions, the warm embrace of others and the detailed experience of one particular smart kid.
+She could see all the spirits burst in laugher, it reminded her about past days when she set her first foot steps on the cave's soft sand. It was so frightening at the time, only to find comfort in the cleverness and cheekiness of her companions, the warm embrace of others and the detailed experience of one particular smart kid.
 
 Her memories were somewhat bittersweet. She now knew that careless laugher had a steep price to pay.
 
 The reverberation of the laugher echoing through the chamber had calmed down, replaced by subtle murmurs of conversations happening beyond her hearing capabilities. She leaned forward to increase her chances of peaking into the conversation, enough for her face to poke from the deep shadows as her braided hair, decorated with pink laces, swung gently but unimpeded.
 
-The Turtle had engaged Hannah, with the latter looking noticeably uncomfortable. Chances were the Turtle, being a lover a gossips and rumours, asked Hannah if she had already hold hands or kissed Amir.
+The Turtle had engaged Hannah, with the latter looking noticeably uncomfortable. Chances were the Turtle, being a lover of gossips and rumours, asked Hannah if she had already hold hands or kissed Amir.
 
 She browsed some more the scene playing out below, the Bat and the Tiger praised Amir for his performance in the trial of fire. Well, in pure honestly, Amir praised himself whilst the Bat's suspicious stare examined the Tiger.
 
