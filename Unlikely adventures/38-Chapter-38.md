@@ -62,7 +62,7 @@ Almost as on cue, the world below the Spider and Yule had come to a stop, where 
 
 The interruption snapped the Wolf back into the present, and the present told him that Sam was a strange child indeed - ***I'll need to ask thee one question*** -  he said whilst kneeling next to Sam. He knew the child wasn't listening and decided to make his presence present himself on Sam's present. The Wolf securely grabbed Sam's shoulders and said - ***Why art thee staring at the moon instead of the stone as I asked for?***
 
-*"The stone?"* - replied Sam without losing focus on the silver globe at the distance. Somewhere in his mind he found the necessary energy to stir away from the hypnotic force and turned to face the Wolf and his bright yellow eyes. Somehow the moon light made its eyes beam like a laser cutting through the fabric of space, that is assuming Sam knew what a laser was, but if he didn't know the word, it had to be coined to describe the piercing characteristics of the Wolf's stare.
+*"The stone?"* - replied Sam without losing focus on the silver globe shining at the distance. Somewhere in his mind he found the necessary energy to stir away from the hypnotic force and turned to face the Wolf and his bright yellow eyes. Somehow the moonlight made its eyes beam like a laser cutting through the fabric of space, that is assuming Sam knew what a laser was, but if he didn't know the word, it had to be coined to describe the piercing characteristics of the Wolf's stare.
 
 Sam appeared to be visually conflicted. His brain attempted to land the concepts into words and explain to the wolf eagerly awaiting in from of him, it was obvious by the firm stance of the Wolf's ears. Sam took another glance at the monolith with the symbols glowing in the colours of the flames they had received from each spirit. Sam noticed the pale while stone, reflecting the enchanting glitter of the moon light back at him. His chest stroke once more ‘Ba-Dump’
 
@@ -72,7 +72,7 @@ Words found a way to his throat and began to form a sentence, they had that inde
 
 Sam felt those lupine eyes drilling deeper, searching for an appropriate answer - *"I just feel it here"* - added Sam covering the little flame swivelling in his chest - *"I mean, the call."*
 
- The Wolf closed his eyes to savour the words before the present washed it away, it was short lived; he remembered there was a path established for the children - ***Thee shall not follow this calling otherwise the training would be meaningless. Thee shall take the righteous path to Eden.***
+ The Wolf closed his eyes to savour the words before the present washed them away, the moment was short lived; he remembered there was a path established for the children - ***Thee shall not follow this calling otherwise the training would be meaningless. Thee shall take the righteous path to Eden.***
 
 Sam's mind remained absent from his surroundings, or so it seemed.
 
@@ -142,7 +142,7 @@ Yule stared at the silver orb hovering on the Wolf's hands. It resembled a snow 
 
 The Spider nodded.
 
-Yule scanned the room below her. Sam was fixated on the miniature moon, Hannah and Amir mesmerised by the Sam and the Wolf surrounded by sand drifting in the air, glistening as if it was made of shiny metallic bits. Behind them, The Tiger embraced the Turtle whilst watching a moving scene for the first time. The Bat remained seated on the ground, both hands covering her mouth as if the action could hide her shock - *"But if the light goes with them, what will it happen to you?"*
+Yule scanned the room below her. Sam was fixated on the miniature moon, Hannah and Amir remained mesmerised by the scene playing out between Sam and the Wolf surrounded by sand suspended in the air, glistening as if it was made of shiny metallic bits. Behind them, The Tiger embraced the Turtle whilst watching a moving scene for the first time. The Bat remained seated on the ground, both hands covering her mouth as if the action could hide her shock - *"But if the light goes with them, what will it happen to you?"*
 
 The Spider limited herself to hug Yule, it was a tight and firm, the same type you would give to a family member before they embark in a long journey. In a way, it was heartbreaking. Yule wasn't much of a sentimental person, at least she hasn't been for a while now, right until this moment were she found herself wondering if she should break her rule.
 
@@ -150,9 +150,9 @@ The Spider limited herself to hug Yule, it was a tight and firm, the same type y
 
 ***I am sure you have concluded what this orb is*** - said the Wolf, who's coarse voice filled every empty space in the chamber.
 
-*"It looks like a snow globe if I ever have seen o-OUCH!"* - said Amir suddenly jumping on one foot. He looked apprehensively to Hannah's delicate yet incredibly strong feet.
+*"It looks like a snow globe if I ever have seen o-OUCH!"* - said Amir suddenly jumping on one foot whilst holding the other one between his fingers. He looked apprehensively to Hannah's delicate yet incredibly strong feet.
 
-Sam refocused on the Wolf. The orb had this solid appearance hard to ignore, certainly it wasn't like anything else Sam had looked unclose before  - *"It looks like the moon."*
+Sam refocused on the Wolf. The orb had this solid appearance hard to ignore, certainly it wasn't like anything else Sam had observed before - *"It looks like the moon."*
 
 ***I wish it was*** - said the Wolf playing with the orb between his fingers. Every subtle movement of his hand had an immediate reaction of the shiny sphere lighting up the room - ***But I hoped your answer to be different.***
 
@@ -178,7 +178,7 @@ Sam gave another look at the Bat. It was a silent plead for guidance. She restra
 
 *"It is ok, my friend. I'll see you soon enough. You promised you'll be my friend, don't you forget it!"* - she said it, taking a swing at Sam's arm.
 
-Behind the Bat, Sam could see the Tiger couched next to Amir opening his large arms embracing the small kid - **You gotta remember wut we talked: keep dat flame burning strong. If you feel 'bout to chicken out...**
+Behind the Bat, Sam saw the Tiger crouching next to Amir opening his large arms about to embrace the small kid - **Remember wut we talked: keep dat flame burning strong. If you feel 'bout to chicken out...**
 
 *"Yes, I know. Face my fears so the blessing doesn't leave me."* - completed Amir.
 
@@ -214,9 +214,13 @@ Sam opened his arms to receive the warm hug of the Wolf.
 
 *I believe this is the part where you go and get your friends out of this cave* - said the Spider to Yule's sorrowful stance.
 
-Yule saw Sam touch the cold surface of the silver orb. It bursted into fine myst which spiralled around him. It curved through the air sparkling through, finally finding its way to the centre of his chest, streaming into it like matter falling into a neutron star. When the last bit of it had disappeared, Sam, Amir and Hannah began to glow.
+Yule saw Sam touching the cold surface of the silver orb. It bursted into a fine myst which spiralled around him; creating an arc in the middle of the air. The myst searched for a particular location until it finally found its way to the centre of his chest, streaming into it like matter falling into a neutron star.
 
-Behind them, Yule noticed the spirits shape become fuzzy and drifting up into the air. She turned immediately to find the Spider staring back at her, quickly vanishing into a myst dissolving into the air - *It was good to see you once more.*
+As the last remaining bits had disappeared into Sam's chest, the children began to glow.
 
-Yule's little flame once again skipped a beat or two; her chest ached and throat left as if a large stone tried to climb up. She swore never to be weak again, but unfortunately for her, reason is not in charge of emotions. She broke down uncontrollably sobbing as she tasted once more the bitter taste of losing those you care about.
+Behind them, Yule had noticed the spirits' shape became fuzzy as their bodied drifted up towards the sky, or whatever it summoned them behind the cracked ceiling. She turned immediately to find the Spider staring back at her, quickly vanishing into a myst dissolving into the air - *It was good to see you once more.*
+
+Once again, Yule's little flame skipped a beat or two; her chest ached and her throat felt as if a large stone climbed up all the way from her stomach. She swore never to be weak again, but unfortunately for her, reason is not in charge of emotions.
+
+She broke down in an uncontrollable sob as she experienced once more the bitter taste of losing those she cared about.
 
