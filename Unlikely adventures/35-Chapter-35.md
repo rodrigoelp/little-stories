@@ -168,7 +168,7 @@ Hearing the Tiger saying those words made Amir a little bit proud - *"Yeah, I ca
 
 **I should explain dat to get it out of da way. Everybody has an inner power, making fings our of magic sand seems to be one of yours** - the Tiger had sat down. He wanted Amir to understand each word and he wanted to be careful - **You see, manipulating da sand is a tricky fing, you need to focus on each grain and command dem to play nicely togeder. Sum kids will be good at flying, oders can freeze fings whilst singing 'bout how da cold weader doesn't boder them.**
 
-There was some paternal tone to his speech, Amir was fixated to the glowing cat - **Your skill is pretty good, but it takes time to perfect it once you are out dere. Dreams are reality don't follow da same rules.**
+There was some paternal tone to his speech, Amir was fixated to the glowing cat - **Your skill is pretty good, but it takes time to perfect it once you are out dere. Dreams and reality don't follow da same rules.**
 
 The Tiger scratched his chin considering Amir's options - **But a wizard can teach you, you know? Dey used to do great fings in the past, all you need to do is find one.**
 
