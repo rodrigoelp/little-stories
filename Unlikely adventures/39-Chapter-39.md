@@ -50,19 +50,19 @@ The Spider wore her usual attire, although it had a few subtle changes. Her wing
 
 **Yeh** - he replied monotonically.
 
-*May I ask why?* - asked the Spider with the same expression a mother would assume trying to under why her child is pouting whilst crossing their arms.
+*May I ask why?* - asked the Spider with the same expression a mother would assume trying to understand why her child is pouting whilst crossing their arms.
 
 **I was hoping to see your rambunctious posterior up and 'bout ** - he replied causing an instantaneous response from the Spider who joined the Turtle, burying herself deep in the cosmic fabric hiding herself.
 
 *"I would have never expected such words coming from you"* - added the little Bat emerging from the infinite sea of stars. She wore a dress and her bat-like wings had long silver ribbons stretching to infinity, almost as if a stellar nursery had condensed into thin strips of cloth, attaching itself to the Bat's wings.
 
-**I may not have much culture, but I am good dishing out compliments regarding an excellent gluteal muscles** - he said lifting his eyebrows with a naughty glance - **You know the saying ‘Tigers always attack from behind’. Well, we are looking at wut we like!**
+**I may not have much culture, but I am good dishing out compliments regarding an excellent set of gluteal muscles** - he said lifting his eyebrows with a naughty glance - **You know the saying ‘Tigers always attack from behind’. Well, we are looking at wut we like!**
 
 ***At times I wished these pervert comments did not emerge from within our ranks*** - said the Wolf rising from the sea of stars. The cosmic fabric had a hard time figuring out the most appropriate look based on the Wolf's personality. It hung on his back, growing fuzzier by the moment until it settled on a silvery fur jacket, a grey shirt and a pair of pants jagged at the bottom from which asteroids and comets emerged.
 
 The Wolf was pleased with his appearance. However, his pointy ears picked up the bickering happening between his companions. He decided to ignore the discussion, a stranger had stolen his attention.
 
-The strange sat studying their emergence from afar. He had this inquisitive and mysterious stare, or that was the Wolf's impression as the eyes of the stranger resided hidden from view; the stranger had a very hairy face, mostly covered by a single thick unibrow and a long bushy beard. The beard alone was extremely impressive, so impressive in fact that vikings would sing songs about the old man visiting a far away village and you sort of knew what the old man was doing by the way the beard moved on the streets of their own town. Obviously, that wasn't the case, there were no vikings in their world, or rather in this astrophysical plane.
+The stranger sat studying their emergence from afar. He had this inquisitive and mysterious stare, or that was the Wolf's impression as the eyes of the stranger resided hidden from view; the stranger had a very hairy face, mostly covered by a single thick unibrow and a long bushy beard. The beard alone was extremely impressive, so impressive in fact that vikings would sing songs about the old man visiting a far away village and you sort of knew what the old man was doing by the way the beard moved on the streets of their own town. Obviously, that wasn't the case, there were no vikings in their world, or rather in this astrophysical plane.
 
 The old man swung back to stretch his back against the backrest of the inter-dimensional bench. He detailed every movement of the newcomers whilst pulled from his pipe, releasing a puff coalescing into a nebula drifting away. The Wolf couldn't help to notice his attire, there was something jolting memories from long time ago; memories of a distant past when all six primordials walked the realms for the first time.
 
@@ -114,7 +114,7 @@ The Wolf nodded once more - ***I thought you didn't like us calling you vult-***
 
 *"It couldn't have been played by anybody else"* - Father replied, feeling all six pairs of female eyes throwing daggers at him - *"You see, this boy fit the most intrinsic requirement to be a hero."*
 
-*"Oh yeah? I really want to hear about this"* - said the Bat folding the sleeves of his robes up in preparation for a few flying punches.
+*"Oh yeah? I really want to hear about this"* - said the Bat folding the sleeves of her robes up in preparation for a few flying punches.
 
 *"You see, the key ingredient of a good hero is to be great at being a fool"* - added Father - *"You need a fool so fool that will run head first towards an oncoming homungous-spiked-covered-octopus whilst they scream ‘In the name of glory!’"*
 
@@ -128,7 +128,7 @@ The Wolf nodded once more - ***I thought you didn't like us calling you vult-***
 
 "Anyway, this child I picked is the greatest of them all. He was perfect!" - The unibrow bent with disapproval - *"Or he was perfect until the other one appeared and threw everything out of whack!"*
 
-The Wolf felt uncomfortable not following who was Father referring to, specially since Sam and Amir share a lot of the requirement to play the part.
+The Wolf felt uncomfortable not following who was Father referring to, specially since Sam and Amir share a large portion of the requirement Father was talking about.
 
 **I am sorry Charon, I fought dese kids would needed some encore-age... some assistance to move forward. We had no idea we needed to wait for some oder children** - replied the Tiger fumbling with some stars between his fingers, adverting the gaze of Father.
 
@@ -150,7 +150,7 @@ The Spider wanted to correct him, but it would have derailed the conversation.
 
 *"He naturally can channel magic around him, ideal to break the seal on the Gate of Truth separating this dimension and theirs"* - explained Father - *"That's why it is important he has all the tools to do the job, yet you lot gave four of the blessings to other children."*
 
-*"What about the Sam and Hannah?"* - asked the Bat.
+*"What about Sam and Hannah?"* - asked the Bat.
 
 *"The girl would have been good motivation for him"* - added Father - *"It was rather convenient she appeared when she did. She could have played the damsel in distress."*
 
@@ -158,7 +158,7 @@ The Spider wanted to correct him, but it would have derailed the conversation.
 
 *‘Damsel in distress’ dear Tiger. As in a girl to be saved.* - explained the Turtle.
 
-**Save wut? Dat girl? She needs no saving! I am sure she would have walked straight to Eden, kick da bloody gate open, make da dragon come like puppies and shout at dem dragons to bring her some biscuits wid tea and milk. No need required!** - the Tiger looked for support of his fellow evaluators - **You know I'm rite!**
+**Save wut? Dat girl? She needs no saving! I am sure she would have walked straight to Eden, kick da bloody gate open, make da dragons in running come like puppies and shout at dem dragons to bring her some biscuits wid tea and milk. No need required!** - the Tiger looked for support of his fellow evaluators - **You know I'm rite!**
 
 *"What about Sam?"* - the Bat pressed on to find her answers.
 
