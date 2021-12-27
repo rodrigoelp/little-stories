@@ -158,7 +158,7 @@ The Spider wanted to correct him, but it would have derailed the conversation.
 
 *‘Damsel in distress’ dear Tiger. As in a girl to be saved.* - explained the Turtle.
 
-**Save wut? Dat girl? She needs no saving! I am sure she would have walked straight to Eden, kick da bloody gate open, make da dragons in running come like puppies and shout at dem dragons to bring her some biscuits wid tea and milk. No need required!** - the Tiger looked for support of his fellow evaluators - **You know I'm rite!**
+**Save wut? Dat girl? She needs no saving! I am sure she would have walked straight to Eden, kick da bloody gate open, make da dragons come in, running like puppies and shout at dem dragons to bring her some biscuits wid tea and milk. No need required!** - the Tiger looked for support of his fellow evaluators - **You know I'm rite!**
 
 *"What about Sam?"* - the Bat pressed on to find her answers.
 
