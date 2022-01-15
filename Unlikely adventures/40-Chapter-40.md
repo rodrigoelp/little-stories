@@ -132,4 +132,4 @@ Yule tilted her head analysing her explanation - *"And that was the best you cam
 
 Yule raised her hand to touch her soft face, even though she still had tracks left behind by some tears, there was no sign of new ones rolling down her face - *"I guess so, ha!"*
 
-Yule began to giggle, it was a gentle one, the type you share with your uncle tells you an inappropriate joke in an awkward situation. Hannah continued to laugh nervously in Yule's company. A few moments later, they couldn't remember why they were laughing, they just knew it was better to forget sensitive subjects for the time being.
+Yule began to giggle, it was a gentle one, the type you share with your uncle after he told you an inappropriate joke in an awkward situation. Hannah continued to laugh nervously in Yule's company. A few moments later, they couldn't remember why they were laughing, they just knew it was better to forget sensitive subjects for the time being.
