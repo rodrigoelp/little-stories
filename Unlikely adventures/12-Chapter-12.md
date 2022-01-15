@@ -36,7 +36,7 @@ She gave two gentle slaps on Paul's cheeks and turned to face Mathias - *"I do n
 
 
 
-Mathias watched with odd fascination the pair of lovers. It was like watching an eagle play affectionately with a bunny. He couldn't understand the probabilities in which these two would meet and experience affection to one another, instead of one chasing the other with a murderous intent.
+Mathias watched with odd fascination the pair of lovers. It was like watching an eagle play affectionately with a bunny. He couldn't understand the probabilities in which these two would meet and experience affection for one another, instead of one chasing the other with a murderous intent.
 
 Shook himself awake after he imagined a series of winged bunnies running on the grass - *"Uhm, wonder where Yule is?"*
 
