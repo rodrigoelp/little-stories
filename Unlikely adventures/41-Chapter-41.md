@@ -1,6 +1,6 @@
 # Peas in a pod
 
-A boy, not much taller and not shorter than Mathias remained seated on a rock watching the indecisive nature of the ocean waves. To the casual observer, the boy was the spitting image of Mathias, though it is a little bit silly to think that way, isn't it? Anybody who has seen saliva resting on the ground can attest its lack of reflectivity and poor optical qualities.
+A boy, not much taller and not shorter than Mathias remained seated on a rock watching the indecisive nature of the ocean waves. To the casual observer, the boy was the spitting image of Mathias, though it is a little bit silly to think about imagery in that way, isn't it? Anybody who has seen saliva resting on the ground can attest its lack of reflectivity and poor optical qualities.
 
 In any case, the boy had the same constitution as Mathias. His body's main attribute was the broad shoulders; not too athletic, but certainly not overweight.
 
@@ -10,108 +10,118 @@ However, in several other aspects the child lacked on some of Mathias' attribute
 
 Another key difference between this boy and Mathias, he had a bright white smile.
 
-But coming back to the original topic: indecisiveness, that's what occupied the boy's mind. The shore remained steady whilst the water ran a few metres on it, just to rush back an instant later making the characteristic whoosh as it retreated. Little white crabs emerged from their underground shelters when the sand dried up, confident the water had disappeared for good, just to be surprised when it rushed back towards dry land. It was a problem is memory analysed the boy.
+But coming back to the original topic, what was it again? Getting distracted by images of spit or something... Ah, no! It was indecisiveness, that's what occupied the boy's mind. The shore remained steady whilst the water ran a few metres on it, just to rush back an instant later making the characteristic whoosh as it retreated. Little white and pink crabs emerged from their underground shelters when the sand dried up, confident the water had disappeared for good, just to be surprised when it rushed back towards dry land. It was a problem is memory analysed the boy, some people has it and others might start rambling about the transparency, refraction and reflection of bodily fluid, extracellular in nature, produced and secreted in your mouth.
 
-*"Issy?"* - called a girl dressed in pale white and lilac wings from a near by grotto. The words reached Ishmael's ears, but if anybody wanted to talk to him, they better stand close to him. Who said a good conversation requires shouting?
+*"Issy?"* - called a girl dressed in white with pale lilac wings from a near by grotto. The words reached Ishmael's ears, but if anybody wanted to talk to him, they better stand close to him. Who said a good conversation requires shouting? Or, as it was the current case, a damp and sombre cave on the side of an island?
 
 *"Issy!"* - repeated the girl prompting her head from within the cave - *"Have you gone deaf?"*
 
-He swayed his shoulders side to side with indignation - *"Glamour, darling. I would uphold my glamour before start screaming like a farmer who has lost a manta."*
+He swayed his shoulders side to side with indignation - *"Glamour, darling. I would uphold my glamour before screaming like a farmer who has lost a manta in the middle of a carnivore conference."*
 
-The girl rolled her eyes taking the respective steps to close the distance between each other - *"Look! I found a few flowers around and decided to ink my wings with it."*
+The girl rolled her eyes taking the respective steps to close the distance between each other - *"Look at my wings! I found a few flowers around and decided to ink my wings with it. And they glow in the dark too!"*
 
-Ishmael turned almost instantly. The topic of colour usually attracted his attention - *"Ooooh, this is such a lovely colour! Do you have a few more?"*
+Ishmael turned almost instantly. The topic of colour usually attracted his attention - *"Ooooh, this is such a lovely hue! Do you have more of it?"*
 
-The girl stared at his wings - *"I don't think you need any more ink. I mean, you look already quite dashing."*
+The girl stared at his wings - *"I don't think you need any more ink. I mean, you look already quite... dashing, if I may say."*
 
-Ishmael smiled, it was the sort of smile that usually appears when you are the subject of adulation - *"Not dashing... I look divine!"*
+Ishmael smiled, it was the sort of smile that usually appears when you are the subject of adulation - *"Not dashing. I look divine!"*
 
 *"I am so fortunate to have such a friend with an amazing taste!"* - her words carried certain humour. The kind of humour evolved over several years of dealing with a personality who will never change, but you don't really want them to.
 
-*"To die for!"* - he added, finishing the well rehearsed joke.
+*"To die for!"* - he added, finishing the well rehearsed joke. It was the sort of proverbial cherry on top that made them both break in laughter.
 
-And both of them broke in laughter, it was the sort of laughter that slowly builds momentum, one in which one giggles and the other finds it adorable laughing out loud, creating a self perpetuating cycle. The laughter filled their corner of the world as it echoed through the enormous island, its very tall fiord, the arches of forgotten civilisations and some peculiar mounds with bubbling mud.
+It was the sort of laughter that slowly builds momentum, one in which a child giggles and the other finds it adorable laughing out loud which in turns accentuates the giggling, establishing a self perpetuating cycle.
 
-‘Whoosh, bloob, bloob’ - erupted a geyser breaking up the laughter.
+The laughter filled their corner of the world as it echoed through the enormous island, its very tall fiord with sprinkled arches to the side of it. Some arches were natural, but others were the ruins of a forgotten civilisations. The scenery was idyllic, a tropical paradise with unconventional topology, archaeology and geology; though, every now and they, a gurgle could be heard followed by the subtle smell of a one day old egg salad sandwich. The culprits were some peculiar mounds with bubbling mud.
+
+‘Whoosh, bloob, bloob’ - erupted the nearby geyser interrupting the children's laughter.
 
 The girl stared at Ishmael, her eyes displayed a sweet expression. He noticed a hint of lust in it - *"Stop looking at me like that, I am not my brother!"*
 
 *"You look an awful lot to him"* - she replied with a melancholic tone added to it.
 
-*"He better, that's what identical twins means, no?"*
+*"We better, that's what identical twins means, no?"*
 
 *"Yes, but your bother has this... it is a... something very different!"* - she added, letting herself fall in the temptation of the memory.
 
 *"I know, I know!"* - he raised his hand in the middle of the air, like a student who always knows all the answers does when the teacher asks an obvious question - *"Is it my astonishing taste in fashion? Or is it my animal sex appeal? Oh, I know what it is! He likes girls!"*
 
-*"... It is like a raw, brute attraction"* - she heard the words leaving her mouth, reflected for a moment then gave a complicit look at Ishmael - *"I'm sorry, I don't know what took over me."*
+*"... It is like a raw, brute attraction"* - her eyes widened as she heard the words leaving her mouth. Her expression was filled with momentary reflection followed by complicit support from Ishmael - *"I'm sorry, I don't know what took over me."*
 
-*"Amelia, you incurable!"*
+*"You are utterly incurable my dear Amelia!"* - said Ishmael sassily.
 
-Both of them broke in laughter once again. The laughter echoed through the mountain, it reached the top from which a child zoomed past in close pursuit of a manta. The laughter reminded him of the pair below, landing close to them.
+Both of them broke in laughter once again. The laughter echoed through the mountain, up a few waterfalls, through the granite eroded crevice, up to the very top from which a child zoomed past in close pursuit of a manta. The laughter somehow overpowered the sound of the wind whooshing past his ears, it reminded him of the pair below. He banked left, folding his winds back as he landed next to them.
 
-*"Whas goin-on?"* - said the newcomer.
+*"Hgey, wha did I miss?"* - the newcomer shook his hair off his face revealing his prominent straight nose, bushy eyebrow that somehow stopped half a centimetre from merging in the middle and a strong jaw line that mathematicians could have used to define trigonometry. He displayed all the signs of an adventure seeker sort of kid, or at least someone who isn't careful of preventing lacerations prone to scarring.
 
-*"Hi Sunny!"* - said Amelia.
+*"Hi Sunny!"* - Amelia stood up to welcome the newcomer to their little corner of the world.
 
-*"Hgey señorita! Wha-re you two laughin about?"* - said Sunny, filling up his large chest with fresh air.
+*"Hgey señorita! Wha're jou two laughin at?"* - Sunny's smile shone with the golden light of the early morning, if you are the sort of people waking up at ten past eleven. He sat next to Ishmael and leaned back to fill up his large chest with the fresh air of the beach.
 
-Ishmael noticed the tore garments - *"Not again! I have repaired that shirt twice this week"*
+Ishmael stare travelled from the back of Sunny's back, over his iridescent pearl white wings and finally, he noticed the tore garments, parts of it would receive the term tatters to be precise - *"Not again! I repaired that shirt twice this week!"*
 
-*"Jes, but I don kno wha happen, uh? Wan momen I was followin the manta and the other momen my shirt is broken. Wha're you goin to do, uh?"* - Sunny.
+*"Jes, but I don kno wha happen, uh? Wan momen I was followin the manta, it turns to the left and I turn to the left, then it dove in and I followed, uh! And all of the sudden my shirt is broken open. Wha're jou goin to do, uh?"* - Sunny gestured reprising the pursuit that eventuated on a tore piece of clothing - *"Tis tings are difficul to avoid. Just sayin!"*
 
-*"Seriously, you gotta enunciate. It is almost impossible to understand you when you are all hyped"* - Ishmael - *"Why were you chasing the manta?"*
+The phonetic symphony of words distorted by years of nature accentuating vows and erasing a few consonants played with Ishmael's listening skills - *"Seriously, you gotta enunciate. It is almost impossible to understand you when you are all hyped"* - perhaps it was the comprehension the one getting aggravated with the butchered language - *"And why were you chasing the manta to begin with?"*
 
-*"But to tame it, of coarse"* - Sunny - *"Why would anyone chase a manta if they don't want to tame it?"*
+*"But to tame it, of coarse"* - Sunny's expression could have been described as an old man missing an instruction manual required to assemble a complex piece of furniture with a bent piece of metal and three thousand screws of different sizes - *"Why else would anyone chase a manta if they don want to tame it?"*
 
-"My point exactly" - replied the voice of girl, riding a manta which landed softly on the water. The girl had a big grin showing her achievements - *"You don't chase a manta, my dear Sunny, you claim it and ride it."*
+"My point exactly" - replied the voice of girl on top of a manta flapping a few metres away from them. The manta landed softly on the water, carrying the girl to the edge of the beach. She had a big grin as she showcased her achievements - *"You don't chase a manta, my dear Sunny, you claim it and ride it. Just like I did now."*
 
-Ishmael pulled Sunny's shirt, looking at a big gushes on the back of it - *"Look at this, it will look disastrous."*
+*"Come on Tracy, quiet down, uh?"* - protested Sunny to the best of his abilities.
 
-Both Amelia and Tracy remained quiet in tranced. Some could even say, hypnotised with the view.
+Ishmael ignored the quarrels between Sunny and Tracy, his world had been reduced to a single object in the entire universe; the tore down shirt. He reached out and pulled the shirt over Sunny's head and his moving mouth spouting words Ishmael couldn't understand due to lack of interest. His fingers traced the fabric, or lack of, finding big gushes all over the place - *"Oh dear no, look at this... Disastrous, all of it."*
 
-*"Girls?"* - Sunny called them back to this reality - *"Wha were jou sayin?"*
+Removing the shirt from Sunny had two noticeable effects, the first one of which was the immediate silence in which Tracy and Amelia found themselves. The second one was the consternation felt by Tracy as soon as she realised, she drooled for an instance whilst prowling at Sunny's bare torso. Luckily for her, Amelia found herself in the same state of hypnosis with the sudden view.
 
-Trace and Amelia exchanged a complicit look - *"Nothing!"* - they said in unison and giggled to each other.
+Sunny remained expectant to their answer, wondering what was the cause of the noiseless atmosphere - *"Wha were jou sayin before?"*
 
-Sunny felt somewhat exposed and covered his chest with his pearl white iridescent wings - *"Ey Issy, while jou fix my garments, I'll go to that balder over there, to sunbath."*
+Trace and Amelia exchanged a complicit looks almost in unison, reflexively replying - *"Nothing!"* - before they bursted in giggles and murmurs between each other.
+
+The conversation had come to a stall with the girls, thought Sunny as he watched his partner amend the tatters he once called shirt. A breeze reminded him of his partial nakedness, making him feel exposed. Effortlessly he stretched his wings over his shoulders to wrap his torso with it - *"Ay Issy, while jou fix my garments, I'll go to that balder over there, to sunbath. Ok?"*
 
 Ishmael shook the shock out of him - *"Balder? Oh, yes, that boulder, yes"* - returning to the complex mental gymnastics of the most appropriate stitch that will hold such brute movements.
 
-*"Jes, that balder, that's wha I said. Why do jou repeat at times, uh?"*
+*"Jes, the balder over there. Wasn't that wha I said?"*
 
-Ishmael once again felt drawn away from the world of mending and patching - *"Huh? Yes, yes, love you too. Go!"* - withdrawing back into his mind.
+Ishmael once again felt drawn away from the world of mending and patching - *"Huh? Yes, yes, love you too. Go!"* - retiring once more to the inner parts of his mind.
 
-Amelia and Tracy knew quite well why Ishmael repeated himself, but in all fairness, it was Ishmael's fault was he never tried to teach Sunny proper pronunciation. They just remember the day he came into their world, shifting his hair our of his rugged face and slightly crooked smile as he tried to ride a coelacanth surfing the waves. They remember the wink he gave as he went past followed by ‘Olé!’. They didn't know what it meant, but it melted their world.
+Amelia and Tracy knew quite well why Ishmael repeated Sunny's statement, but in all fairness, it was Ishmael's fault; he never tried to teach and correct Sunny pronunciation. He said it was adorable nuances due to lack of adaptation. That thought made the girls remember the day Sunny arrived into their world, shifting his hair our of his rugged face and slightly crooked smile, maybe missing a teeth as he rode a coelacanth surfing waves. They remember that wink he gave them with his careless attitude for self preservation followed by an ‘Olé!’.
 
-Their memory turned sour when they realised the olé was destined to Ishmael.
+They didn't know what olé meant, perhaps it meant ‘Help me, I have found myself in front of this terrible beast about to charge and, quite possibly, maul me death, but I am handsome’, the exclamation mark may have been translated to ‘marry me!’ if they ever wrote a dictionarium manuale from Sunny's to common language. It was a sweet memory that slowly turned sour for them, when they realised the olé was destined to Ishmael.
 
-*"Life is somewhat unfair"* - said Tracy still staring at Sunny spreading his wings on the boulder.
+*"Life is somewhat unfair"* - Tracy murmured melancholically as she watched Sunny spread his wings covering the boulder below.
 
-Amelia's expression revealed a cheeky thought brewing inside of her - *"Let it go... One day you will find the boy of your life, just like he did."*
+Cheekiness had drawn is classical features on Amelia's expression. Thoughts brewed inside of her - *"Let it go, Tracy. One day you will find the boy of your life, just like he did."*
 
-*"Oh really? And how's your crush for Matty"*
+*"Oh really? And how's your crush for Mattie?"*
 
-Amelia's expression wasn't cheeky anymore. If stares could kill, hers would've dispatched a trained army of assassins, followed by torturers and some lawyers; the assassins and torturers was the standard part, the lawyer was just to be nasty.
+Any hint of cheekiness vanished from Amelia's expressions. If stares could harm others, hers would've dispatched a trained army of assassins, followed by torturers and some a few lawyers for good measure; the assassins and torturers was the standard deal of wanting someone to suffer, the lawyer was just to be extra nasty and evil.
 
-Tracy picked up her overall's suspender, it always had a dramatic way of coming off her shoulders when she wanted to contain her laughter - *"Any how, I am not as hung up as you think I am. I got me and I like me, that's all I need."*
+Tracy picked up her overall's suspender as it began to slide down, it always had dramatic timing to release the grip of her shoulders when she wanted to tried to contain her laughter - *"Any how, I am not as hung up to that sentiment as you think I am. I got me and I like me, that's all I need."*
 
-Amelia swung the topic under the metaphorical rug - *"I might need to get some of that."*
+Amelia knew exactly what Tracy meant, she knew Tracy didn't identify much as a fragile person, needing help or guidance from others; no, she was as independent as you can get. Tracy would be the sort of person that would enjoy the company of others, but she would be equally happy all by herself. Amelia wanted to toss the topic under the metaphorical rug, forgetting about it under its dusty weight. Her mouth moved without thinking too much - *"I might need to get some of that."*
 
 *"Some of what?"* - replied Tracy fighting with the buckle of the suspender.
 
-Amelia extended a helping hand placing the buckle in the right position - *"Like myself without waiting for someone else to like me back."*
+Amelia extended her hands, helping her to place the buckle with the right twist to slide it in - *"Like myself without waiting for someone else to like me back."*
 
-Tracy was about to give Amelia the traditional compassionate gesture of ‘I am here for you brother’ by punching her arm, but she got distracted with Sunny's puzzled stare - *"Is everything alright, Sunny?"*
+Tracy was about to give Amelia the traditional compassionate gesture of ‘I am here for you brother or sister’ by punching her arm, but she got distracted with Sunny's puzzled stare as she watched over Amelia's shoulder - *"Is everything alright, Sunny?"*
 
-*"Jes, I think so. I  am hgaving trouble fucusing to those clouds over there. See? They are twirling as if a meteor or an asteroid punched through it"*
+*"Jes, I think so. I  am hgaving trouble fucusing those clouds over there. See? They are twirling as if a meteor punched through it"*
 
-The clouds spiralled around a small object pulling its contents as the object threaded them around an invisible axis. It was fascinating, though as Sunny would soon find out, the event changed his composed pose to one of sudden realisation; the very same when you understand you are in the standing in front of a very angry bull about to charge. He saw with terror as the object, or rather the person sized projectile got closer, leaving a shock cone as it moved through the air - *"Look out! The thing is coming this way!"*
+The clouds spiralled around a small object pulling its contents outwards, it threaded them around an invisible axis rotating with speed and moving away from it, like fairy-floss pulled out of its stick.
 
-The landing shook the ground surrounding the nearby geyser, followed by a loud boom. It might have been a coincidence, but when Paul stood up the geyser behind him comically blurted out a large portion of mud, almost as if it complained about the unjustified punishment. Paul had his classic relaxed expression with a big smile and one hand up in what could be assumed, it was a sci-fi salute - *"I've come in peace! You know!"*
+Sunny remained perplexed with the event unfolding high above them. It was a little angry thing piercing the clouds with its impressive agility. The admiration quickly became horror; Sunny had come to the realisation the object's trajectory place them in its direct path, it was that familiar sense of horror Sunny had come to know, it told him he was running a race with thousands others dressed in white with red scarfs; it was a race in which you are running away from a big angry beast with solid horns on its head and its eyes glued to your very sorry arse.
 
-Ishmael emerged from behind Sunny, who heroically covered him from any debris launched from Paul's landing. Paul had a few bugs trying to untangle from his hair before he attempted to go again into the skies - *"And who might you be?"*
+*"HGey! Look out!"* - he screamed filled with panicked as the person sized projectile got closer, leaving visible shock cones as it moved through the air - *"That thing is coming right here!"*
 
-*"Wow! That's cool Matt, how did you get here before me?"* - said Paul filled with awe at the sight of Ishmael.
+There wasn't much time to prepare as the object landed, or rather crashed against the ground. The ground shook violently, followed by a loud boom. It may have been a coincidence, but the geyser behind the children comically blurted out large portions of mud, almost as if it filed complains for the unjustified punishment. Paul stood up from the impact area with his classic relaxed expression and big smile; one hand in the air in what could have been assumed it was a sci-fi greeting - *"I've come in peace, you know?"*
 
-Ishmael jaw dropped a few inches - *"Wait, do you know my brother?"*
+Amelia emerged from behind Tracy, who shook some of the sand off her overall and a face of indignation. Ishmael ran out of the cave in an attempt to understand the source of the commotion.
+
+*"What are you guys doing here? The cave dusted me all up and..."* - he paused somewhat confused as he watched Sunny standing up and shaking his wings clean and somewhat silent. It didn't take that much effort to realise the centre of Sunny's attention was the boy standing with a big smile, tangled bugs on his frizzy hair - *"And who might you be?"*
+
+Paul's eyes widened as big as two supper plates - *"Wow! Matt, how did you get here before me?"* - he clearly was in awe.
+
+*"Wait..."* - Ishmael jaw dropped a few inches - *"Do you know my brother?"*
