@@ -8,7 +8,7 @@ Sam got dragged out of his peculiar admiration of the decoration by a familiar v
 
 *"Pardon?"*
 
-*"You should come to take a look here. I've found some books, if you can call it that; it is a bunch of stone sheets wired up at the edges. I think it is utterly impractical to have to carry these around. This things are heavy! Why make them out of stones?"* - the sound of stone leaning and rubbing against stone was a dead giveaway that Amir flicked through the so called "books".
+*"You should come to take a look here. I've found some books, if you can call it that; it is a bunch of stone sheets wired up at the edges. I think it is utterly impractical to have to carry these around. This things are heavy! Why make them out of stones?"* - the sound of stone leaning and rubbing against stone was a dead giveaway that Amir flicked through the so called ‘books’.
 
 *"Anything interesting?"* - Sam asked listening carefully to find Amir between all the echoes.
 
