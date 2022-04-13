@@ -1,18 +1,24 @@
 # Dark waters
 
-Sam felt the muscles around his neck relax with every passing minute under the warm sun and the gentle breeze rubbing against his skin, it was an awful shock to find Yule's sobbing in such a heart felt manner, tucked away near a crevice back in the cave. Sam knew he didn't spend enough time talking to her to form an idea of her personality, but she had that sort of ‘can do’ attitude which was completely absent when they reunited. Now that he remembered it again, he may have been feeling more stressed thanks to Amir who had been making kissing noses whilst pointing at Yule as Sam dragged her out of the cave. He wanted to have a conversation with Amir about the sensible timing to joke around, and he was feeling his fist had a thing or two to say to Amir's face.
+Sam felt the muscles around the neck relax with every passing minute under the warm sun with the gentle breeze rubbing against his skin.
 
-However, Yule's sobs had come to an end as she remained in a deep state of trance, staring at the placid water of the temple's pond. Sam tried to remember the jolly expression she had back at the trial of water, instead the fresh memory of her completely broken and weeping came up. He wondered why the departure of the spirits had such a profound impact on her.
+The shock of Yule sobbing in such heart felt manner, tucked away near a crevice back in the cave, gave him a strong reaction; she looked so fragile, so small.
+
+Sam knew that grasping the depth of someone else's personality took dedication, conversations and lots of sharing together, but the first impressions he got from her hinted the ‘can do’ attitude. Instead he found a partially broken person, one with an incredible tight grip who hold onto his robes as she sought solace, and Sam noticed, a place to blow her nose.
+
+Each step required considerable effort because Sam wasn't used to aid a girl to walk. Add to the event Sam's stress and contained rage targeted at Amir, who had decided to follow them making kissing sounds. Sam was about to have a conversation with Amir about the sensible timing to horse around. Sam also felt his fist had a thing or two to say to Amir's jaw.
+
+However, Yule's sobs had come to an end. She remained in a deep state of trance, staring at the placid water of the temple's pond. Sam missed her jolly expression back in the trial of water, instead the fresh memory of her completely broken and weeping came up. He wondered why the departure of the spirits had such a profound impact on her.
 
 *"And those purple ones over there are water lilies too, right?"* - queried Amir in an attempt to ease the heavy atmosphere around them.
 
-Yule nodded.
+Yule's head bobbed up and down in agreement whilst still fixated on the flowers. It was an impenetrable silence.
 
-*"Fascinating... all of those over there are water lilies"* - Amir wasn't a big fan of prolonged silences.
+*"... Fascinating... so many water lilies. I bet those over there are water lilies too"* - Amir wasn't a big fan of prolonged silences.
 
-Hannah felt the intense pressure projected from Sam. It was the sort of mood anybody would get when you arrive home with a friend and your parents pull out the photo album to showcase one particularly embarrassing story and you began to wonder under which conditions would spontaneous combustion would be considered unaided and spontaneous.
+Hannah's intuition could read the heavy atmosphere projected by Sam; it was the sort of foul mood you would get when you arrive home with a friend, just to be surprised by your parents with a photo album full of embarrassing stories and you pissing your bed. Those sort of stories in which you wonder what would be the precise conditions in which spontaneous combustion would be considered unaided or accidental.
 
-*"That's enough Amir, you have asked about every single plant floating on the pond"* - complained Hannah.
+*"Amir? Darling? That's enough. You have asked about every single plant floating on the pond"* - complained Hannah.
 
 *"Better be informed, don't you think?"* - he added.
 
@@ -24,112 +30,120 @@ Hannah gave a suspicious inspection to Amir's behaviour, something was outside t
 
 *"Why?"*
 
-*"I need to know if you took Tiger's dictionarium manuale..."* - Hannah stopped herself from finishing the statement. She noticed out of the corner of her eye Yule's expression changed as the pain of the events reminded her of the sudden departure.
+*"I need to know if you took Tiger's dictionarium manuale..."* - Hannah stopped herself from finishing the statement. Out of the corner of her eye she noticed Yule's expression changed as the painful events reminded her of the sudden departure.
 
-*"Oh, no, no. I didn't meant to..."* - she tried to apologise but gave a nasty look at Amir, the message was clear ‘This was your fault’.
+*"Oh, no, no, no. Yule, I didn't meant to..."* - she tried to apologise. The apology was followed with a nasty look targeted at Amir, the message was clear ‘This was your fault’.
 
-*"Are you sure all these plants are water lilies?"* - asked Amir in an attempt to bring Yule's concentration away of the source of her pain.
+*"Are you sure all these plants are water lilies?"* - he nervously asked in an attempt to bring Yule's deteriorating mood away of the source of her pain.
 
-Sam seemed to recognise Amir's helping attitude. His execution was flawed most of the time even though his heart was in the right place.
+Sam recognised Amir's helping attitude. His execution was flawed most of the time even though his heart was in the right place, or rather his flame.
 
-*"Amir!"* - said Hannah at the edge of snapping at him and gave a meaningful look to Sam; it was a sort of plead ‘Help me get your friend to stop crying’. Sam misunderstood the telepathic message as ‘a grain of sand may have flown into my eye’ or the most likely scenario ‘I am about to kill Amir’.
+*"Amir!"* - Hannah barely contained her anger. She sought assistance from Sam; a silent plead ‘Help me get your friend to stop crying’. Sam misunderstood the telepathic message as ‘a grain of sand may have flown into my eye, and it really hurts’ or the most likely scenario ‘I am about to kill Amir’.
 
-Sam patted Amir's back - *"Hey bud, I think I am about to go check out the temple."*
+Sam patted Amir's back - *"Hey bud, wouldn't it be awesome to check out the temple?"*
 
-*"Yeah, Ok"* - replied Amir, wondering why the sudden friendliness. Perhaps Sam received the known ‘nature's call’ - *"I guess I'll see you around, let me know if there is anything cool to check out."*
+*"Yeah, Ok"* - replied Amir, wondering why the sudden friendliness. Perhaps Sam received the so called ‘nature's call’ - *"I guess we'll see you around, let me know if there is anything cool to check out."*
 
-*"I mean, it would be so much better if we investigate it **together**"* - reinforced Sam plainly.
+*"I mean, it would be so much better if we go there **together**"* - reinforced Sam plainly.
 
-*"Really?"* - said Amir, thinking how many children do you need to check an old temple, He knew girls often would go to such endeavours together, but never, not even once he felt compelled to attend to such gatherings.
+*"Really?"* - Amir wondered how many children do you need to check an old temple, specially considering the checking involved finding a column tucked away from view and spray it; He knew girls often would go to such endeavours together, but never, not even once he felt compelled to attend to such gatherings with Sam.
 
-*"Yes, really"* - Sam togged Amir's arm and dragged him away from the vicinity of the pond and into the temple.
+*"Yes, really"* - Sam togged Amir's arm, dragging him away from the vicinity of the pond. They walked straight to the temple's side gate.
 
-Hannah observed the pair slowly disappear into the overly large entrance of the temple, at least Sam had managed to diffuse one of her many worries. Hannah didn't want to admit it, but she felt uncomfortable around Yule, specially since Hannah wasn't great at dealing with other's sentiments.
+Hannah observed the pair slowly disappear into the overly large entrance of the temple, at least Sam had managed to diffuse one of her many worries. Hannah didn't want to admit it, but being around Yule was usually an uncomfortable endeavour. Besides, Hannah wasn't great al dealing with other's sentiments.
 
-Yule cleared up the tears of her face and took a deep-yet-somewhat interrupted breath. The same kind you take to tell yourself ‘even if it doesn't feel alright right now, it will be at some point’.
+Yule cleared up the last few tears of her face, taking a deep-yet-somewhat interrupted breath, one of those with the subtext ‘it may not be alright right now, but it has to be at some point, I hope’.
 
-The breeze fumbled with Yule's hair, or rather with the few fibres that have managed to escape the orderly formation of her braids. Hannah couldn't stop herself from admiring Yule's pristine decoration of her attire or her wings: the shiny pink laces and sporadic feather with hot pink and red edges, her dress followed every guidance required for expert flying leaving nothing out of place; if you gave her a spear she would be the personification of a warrior goddess.
+The breeze fumbled with Yule's hair, or rather with the few fibres that have managed to escape the orderly formation of her braids.
 
-*"I wasn't expecting to see you at the water trial"* - commented Yule - *"Or I should say, seeing your body on the ground at the water trial."*
+Hannah couldn't stop herself from admiring Yule's pristine attire and immaculate wings: the shiny silky pink laces zigzagged her braided hair, bumping into the sporadic hot pink or red feather; her dress followed every guidance required for expert flying leaving nothing out of place. If you gave her a spear she would be the personification of a very modern viking warrior goddess; ignoring the puffy red eyes and the stuffy nose.
 
-Hannah's shock was anything but discreet, a hypothetical narrator would have said ‘busted!’ right at that second - *"When did you-"* - she organised her thoughts yet Yule continued over her question.
+*"I wasn't expecting to see you at the water trial"* - Yule broke her silence - *"Or I should say, seeing your body resting on the ground whilst your mind laid trapped in the trial."*
 
-*"I was curious about those two. They have certain something with them and I felt curious"* - she answered. Hannah felt that awkward sensation you got after talking with Yule for a while; She always seemed to know the answers of every question you haven't formulated yet.
+Hannah's shock was anything but discreet, a hypothetical commentator would have said ‘busted!’ right at that moment - *"When did you..."*
 
-*"So I guess you have an interest-"* - Hannah attempted to ask, Yule interrupted her once more.
+*"I was curious about those two. They have certain something, don't they? I felt curious"* - Yule answered.
 
-*"In them? Yes, but I believe they do not have a particular interest in following me or my advice"* - she answered the incomplete question and the question Hannah was about to phrase.
+Hannah couldn't help to experience that awkward sensation you get as Yule interrupts with the answers to the questions you haven't had time to consciously form into a phrase - *"I guess you have an interest..."*
 
-*"Which is?"* - added Hannah. Yule's stare shifted from a flowered austral brooklime to Hannah's eyes. Hannah had rarely felt this exposed in her life, it was a sight that studied the most imperceptible movement and could understand the most complex scenario within just a few seconds.
+*"In them? Yes, but I believe they do not have the interest of following me or my advice."*
 
-To Hannah's surprise, Yule didn't make a comment and returned to her meditative state, looking at the pond. It took her a few minutes of silent meditation before she said anything - *"Do they know?"*
+*"What would that be?"* - added Hannah. Yule's stare shifted from a flowered austral brooklime to Hannah's golden eyes. It made her feel exposed, it was a rare occurrence, but Yule could study the most imperceptible movement and understand the most complex scenario within just a few seconds.
 
-Yule's voice drew out Hannah back onto the present - *"Know what?"*
+To Hannah's surprise, Yule didn't make a comment and returned to her meditative state, looking at the pond. She resumed her quiet state a few minutes before she broke the awkward silence - *"Do they know?"*
 
-*"That you aren't as young to this world as they may believe"* - she explained, still focused on the brooklime and the tiny white flowers of the glossostigma below it.
+*Ah, the awful uncomfortable feeling again* - thought Hannah - *"Know what?"*
+
+*"That you are a little more experienced that they may believe"* - Yule remained focused on the brooklime and the tiny white flowers of the glossostigma below it.
 
 Hannah didn't answer, she squeezed her hands tight.
 
-*"Though age is rarely important for us, you might want to tell them about your previous experiences"* - Yule's body language would tell you she was absent from the current conversation, if it wasn't for her mouth.
+*"Though age is rarely important to us, you might want to tell them about your previous journeys"* - Yule's body language would tell you her mind was absent from the current conversation, if it wasn't for her voice.
 
 *"Why is that important?"*
 
-Yule turned to Hannah - *"He won't mind that you had friends before-"*
+Yule turned to Hannah - *"He won't mind that you had friends before..."*
 
-*"What is past is past"* - interrupted Hannah feeling Yule's soft nature had begun to rub the wrong way on her nerves. Hannah expected a witty comment from Yule, but it didn't emerge; she remained quiet, staring at the calmness of the water and possibly, some other flower.
+*"That's the past. What it is in the past is in the past"* - interrupted Hannah utterly annoyed, feeling Yule's soft nature rubbing the wrong way on her nerves. Hannah awaited the witty comeback from Yule, but it didn't happen; she remained staring at the calmness of the lazy ripples traveling from the edge of the pond to the other, and possibly, some other flower.
 
-Hannah, just like Amir, always felt uncomfortable when someone else was utterly silent. She felt even more so with Yule around, she knew Yule had the inner working to analyse everything you said and everything you didn't.
+Hannah, just like Amir, felt unease with extended periods of silence; it was much worse with Yule around, she knew Yule had the inner working to decompose and analyse everything you said. Unfortunately, she had better skills to analyse everything you didn't.
 
-Hannah recalled a distant memory, the last time she ever saw Yule and had a conversation with her. She remembered Yule and her group venturing deeper into the Golden City ruins, now known as the Golden Wastelands. At that time, Yule advised her to take future events a little less personal; somehow she knew her friends were going to desert her in the middle of the desert, or rather, the sand dunes.
+Hannah recalled that conversation she had with Yule long time ago. She remembered Yule and her group venturing deeper into the Golden City ruins, though the city was in ruin and most of the scenery was a never-ending wasteland.
 
-*"Didn't you have a tall girl with you?"* - she remembered a scary looking girl dressed in black and long dreadlocks.
+At that time, Yule advised her to take future events a little less personal; she had foreseen Hannah's friends leaving her stranded in the middle of the desert, or rather, the sand dunes.
 
-*"Yes, I did"* - replied Yule - *"And I still do. But they would be waiting for us somewhere around the town in Prairie."*
+*"You used to enjoy the company of a tall mean girl, didn't you?"* - she remembered the scary looking girl with her long dreadlocks and pitch black wings.
 
-Hannah reflected on ‘they’ and concluded she most be referring about the tall boy with green wings and the well trained muscled boy wearing a crimson scarf. Hannah limited to reply a dull - *"I see."*
+*"Yes, I did"* - replied Yule - *"I still do. But they are, most likely, somewhere around the town in Prairie. Patiently waiting for us."*
 
-It was a little too dull, it bothered her - *"What does the city in Eden looks like?"*
+Hannah reflected on ‘they’ and concluded she most be referring about the even taller boy with green wings and the well trained muscled boy wearing a crimson scarf. Hannah limited to reply a dull - *"I see."*
+
+It was a little too dull, it bothered her - *"What does the Eden's city look like?"*
 
 Yule remained silent.
 
-*"I imagine the city is fantastic. You can see it from every single realm, but getting up there must be really hard."* - continued Hannah trying to break the ice - *"Out of every single group I've met you must be the first ones there, right?"*
+*"I imagine the city is fantastic. You can see its silhouette from every single realm. I can only dream how difficult it must be to get up there"* - continued Hannah trying to break the ice - *"Out of every single bunch I've met, you must have been the first and only ones that went there."*
 
-Yule impervious concentration became pervious - *"I don't know what it looks like. We never made it that far."*
+Yule impervious concentration became pervious - *"I don't know what it look like either. We never made it that far."*
 
-Hannah couldn't believe her eyes, Yule swayed uncomfortable on the bench - *"Hannah, there are some... things hidden in Wasteland and the ruins of the city. As we got closer to the entrance of the library, the things became alive and attacked us."*
+Hannah saw Yule swayed uncomfortable on the bench - *"Hannah, there are some... things hidden in that wasteland and the ruins of the city. It was everywhere we went. Those things guarded the entrance to the library, the vault. Those things became alive and attacked us."*
 
 *"What things?"*
 
-Yule gave a meaningful look to Hannah, it had pain and unpleasantness, but she wanted to let her know - *"Some called them dragons. They would emerge from the foul greasy waters making a horrible sound, let metal skidding on dinner plates."*
+Yule gave a meaningful look to Hannah, it had unpleasant regret of remembering what you don't want to, but she pushed through - *"Someone called it dragons. Do you remember the pools of foul greasy water? Those things emerged from it, or from under the sand making a horrible sound, like metal skidding on dinner plates."*
 
-She paused, if only for an instant to endure the awful memory that gave her chills down her back - *"You are fortunate your friends didn't drag you closer to the entrance. We barely escaped..."*
+She paused, if only for an instant to endure the awful memory that gave her chills down her back - *"You are fortunate your friends didn't drag you closer to the vault's entrance. We barely escaped..."*
 
-*"I wouldn't call it fortune. They left me in the middle of nowhere surrounded by that putrid smell of the decaying matter of the puddles or lakes of Wasteland"* - resented Hannah - *"I came back to get the blessings, just like you did, to go back and give them a piece of my mind."*
+*"I wouldn't call it fortune. They left me in the middle of nowhere surrounded by that putrid smell of the decaying matter of the puddles or lakes of Wasteland"* - resented Hannah - *"I journeyed back with the intent to get the training of the spirits, just like you did, so I can go back and give them a piece of my mind if I ever find them."*
 
-It wasn't just the way Hannah said things, Yule could appreciate the sentiment buried deep inside of her - *"I think it would be better for you to let go of those feelings. Chances are you will not see them ever again."*
+It wasn't just the way Hannah said things, Yule could appreciate the resentment buried deep inside of her - *"I think it would be better for you to let all of that go. Chances are you will not see them ever again."*
 
-Hannah felt annoyed at Yule, she was right, deep inside of her Hannah knew she needed to let the negative feeling go. It was Yule's last few words entrenched in Hannah's mind - *"Why wouldn't I see them again?"*
+Hannah felt annoyed at Yule, not so much for her comments but because she was right, holding onto those poisonous feelings wasn't any good for her mental state.
 
-Yule understood Hannah wasn't paying attention at some of her warnings, she needed to explain things stating facts - *"The dragons, I told you about them. They would emerge from under your feet, dripping that foul black goo that burns your skin and pierces through your wings. They are merciless. Once they set their red eyes on you, they will hunt you down; if you manage to hide, they will screech and summon more of them until you are surrounded."*
+*Chances are I will not see them ever again* - Hannah repeated the phrase a few times, almost obsessively, decomposing its meaning. She finally gave up with her inner struggle - *"Why wouldn't I get to see them ever again?"*
 
-Yule wanted to stop, but she noticed Hannah was indeed paying attention - *"We.... We only made it out of the Wastelands because one of us stayed behind... and it was my fault Hannah, I couldn't hide as quickly as I should've, the dragon launched its attack, I saw the wall of sharp horns coming my way and he pushed me out of the way. I saw him lose his last breath, I saw his flame..."*
+Yule turned to face a puzzled expression. She knew it is hard to understand a subtle warning without the experience, similarly to parents telling their children not to jump over a ball, but they do it either way, finding out a very upset ball throwing them to the ground usually head first.
 
-Once again Yule's chest filled up with the painful sorrow of those who are missed, new tears began to flow down her face.
+*"I told you about the dragons already Hannah. Those things would emerge from under your feet, dripping that foul black goo that burns your skin and pierces through your wings. They are merciless. Once their red eyes are set on you, they will hunt you down; if you manage to hide, their screech is deafening and you will find yourself surrounded by more of them."*
 
-Hannah didn't need to hear the rest of the story, not that she thought there was much more to tell. She wanted to help ease out Yule's current experiences, but it was awkward to console Yule, or anybody else as a matter of fact, Hannah never had a good contact with that part of her personality. Hannah observed Yule withdrawing her legs closer to her chest and wondered why do we always assume that position when we feel the most vulnerable? It doesn't matter now, Hannah had mindlessly sat down next to Yule, in an attempt to find words of solace and push the pain away, but the words didn't materialise with her voice. Hannah's mind was blank. Through the narrow space between Yule's arms and legs, Hannah saw her tears getting fatter and heavier. Hannah couldn't help to wonder how much water was there in Yule, given she was such a small container for it.
+Yule wanted to stop, but for the first time since they began their conversation, Hannah was listening - *"We.... We only made it out of the wasteland because one of us stayed behind... and it was my fault Hannah, I couldn't... I should've hide, but the dragon launched its attack and he pushed me out of the way. I saw him lose his last breath, I saw his flame go..."* - Her chest sunk deeper, her hand pressed against her flame. New tears streamed down her face.
 
-*"That much salt can't be good for those fish"* - said Hannah's mouth automatically before her brain engaged the phrase, analysed it and decided it was best to not say it. She hated herself for saying such an insensitive thing. Clearly she has been hanging a little too much with Amir, her manner of speaking without thinking rubbed on her, or so she wanted to believe.
+Hannah heard enough of the story, she knew where it was heading. She wanted to help ease her pain, but it was awkward to console Yule, or anybody else as a matter of fact. Hannah never felt close enough with that part of her personality.
+
+Yule withdrawn her legs closer to her chest. It was that sort of position anybody take when they feel the most vulnerable. Regardless of the reason, the small figure made Hannah mindlessly sit down next to her, in an attempt to find words of solace and push the pain away, but there was no muse to guide Hannah's words, her mind was blank. Through the narrow space between Yule's arms and legs, Hannah saw her heavy fat tears cascading into the shadows. Hannah couldn't help to wonder how could Yule contain so much water being so small.
+
+*"That much salt can't be good for the fish"* - said Hannah's mouth before her brain captured the phrase, analysed it and decided it was best to not say it. She hated herself for saying such an insensitive things. Clearly she has been hanging a little too much with Amir, her manner of speaking without thinking rubbed on her, or so she wanted to believe.
 
 Hannah heard the gurgling sound of Yule's stuffy nose, clearing a path in-between sobs.
 
 *"Wha?"* - Yule asked.
 
-*"The salt, in your tears... these fish like fresh water..."* - panicked Hannah scrambling for words - *"Look, I don't know. I just wanted to get you somewhere else to make you stop crying, to make you feel better..."*
+*"The salt, in your tears... these are freshwater fish..."* - panicked Hannah scrambling for words - *"Look, I don't know. I said anything to get you to stop crying, to make you feel better..."*
 
 Yule tilted her head analysing her explanation - *"And that was the best you came up with?"*
 
 *"Sadly, yes..."* - Hannah embarrassment made her laugh nervously - *"but it sort of worked, didn't it?"*
 
-Yule raised her hand to touch her soft face, even though she still had tracks left behind by some tears, there was no sign of new ones rolling down her face - *"I guess so, ha!"*
+Yule raised her hand to touch her puffier eyes and soft skin, even though she still had tracks left behind by some tears, there was no sign of new ones rolling down her face - *"I guess so... He.... he he!"*
 
-Yule began to giggle, it was a gentle one, the type you share with your uncle after he told you an inappropriate joke in an awkward situation. Hannah continued to laugh nervously in Yule's company. A few moments later, they couldn't remember why they were laughing, they just knew it was better to forget sensitive subjects for the time being.
+Yule giggled, it was a gentle one, the type you share with your uncle after he told you an inappropriate joke in an awkward situation. Hannah laughed nervously in Yule's company. A few moments later, they couldn't remember why they were laughing, they just knew it was better to forget the reason for the time being.
