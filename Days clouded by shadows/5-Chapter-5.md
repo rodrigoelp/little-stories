@@ -94,9 +94,6 @@ He waited until every single flame was asleep, then enchanting one jar, opened i
 
 The giant jar, rolled away from his cold hands, drifting slowly as one final butterfly left the Collector's chest. His body turned to stone, laid next to it in a sleep-like state: in a gentle but long-lasting dream about the daylight of Prairie.
 
-
-
 ----
 
  [Back to table of contents](0-Index.md) or [Next](6-Chapter-6.md) 
-

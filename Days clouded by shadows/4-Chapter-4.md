@@ -79,9 +79,6 @@ Her attention fixated on the cracks spreading on her crystal and the absence of 
 
 And there she remained, her flame went out and she turned into dust, lost among the trees of the Hidden Forest.
 
-
-
 ----
 
  [Back to table of contents](0-Index.md) or [Next](5-Chapter-5.md) 
-
