@@ -14,11 +14,7 @@ He promptly took off in search for the misplaced spark. By the time he got to th
 
 He tried to hold it with his staff but the spark split in two instead of flaring up, he sat down, mesmerised by the energy on its movements. He has seen most of the Star Children been born, but this was the first time he saw sparks actively trying to eat its way into existence. The two sparks grew into flames and quickly into souls and then into two children.
 
-
-
 Father embraced both children...
-
-
 
 Well, he wanted to embrace them but, he was too old and these children were too active to stay put. He could not have them both on his arms; they were competing with each other who could get away the fastest from the paternal grip. His ribs complained. A kick had landed on his side whilst a little hand was trying to rip off his mask and his staff hit the back his head followed by the laughter of the children.
 
@@ -76,9 +72,6 @@ They vanished among the confusion of the day.
 
 There was no trace of them, just an empty citadel, the snow-covered twin peaks and the Valley of Triumph.
 
-
-
 ----
 
  [Back to table of contents](0-Index.md) or [Next](4-Chapter-4.md) 
-

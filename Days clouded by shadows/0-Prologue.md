@@ -1,20 +1,35 @@
-# What is this?
+# Prologue
 
-There is this little game called "Sky: children of the light" which has lots of meaning and content behind it, yet it lacks a story to thread the environments you visit. Inspired in its beautiful story and content, I decided to write these stories to fill up the gaps left by the original creators, providing a deeper meaning to the sacrifice the inhabitants perform as they continue their journey and grow closer to friends.
+How could you tell the story of a little planet so full of joy, so full of life, and so full of love that was engulfed in darkness until not so long ago, without making it depressing?
 
-This is a sort of thank you for inspiring me yet, I lack so many attributes to be a good writer or storyteller. However, I already shared these ideas with others, gained perspective that keeping ideas to myself keeps me locked in a world in which I will continue to doubt if I have anything others might be interested.
+Perhaps, the best place to start is to explain what that little world was like.
 
-To those of you sharing your love: Thank you, you provided motivation to make this public.
+You might know the basics of planetary formation. The complex dynamics of the early days of a solar system: spinning all that dust, chemicals, and energy to eventually coalesce into little spheres.
 
-To future readers: Thank you, your time spent reading my words and ideas is dearly appreciated, even if you don't share a comment back.
+Some times, those little spheres are blessed with the rare opportunity to dance under the light of a kind star. That dance moves chemicals, nutrients, and energy to allow complex processes to organise into a perfectly self sustaining cycle we can call life.
 
-To critics: Thank you as well, positive and negative feedback helps others organise their train of thoughts and tune the senses.
+And I know, I am running into a polemic topic.
 
-Hope you enjoy it.
+Some of you might be saying - *"Come on... don't be absurd! It is common knowledge that planets are disc shaped, carried on four elephants standing over a cosmic turtle drifting through the vastness of space"*
 
+But, let's humour the idea. Perhaps in this little corner of the cosmos, that spectacular dance began before any planet had a chance to form smooth spheres rotating around their star.
 
+Perhaps this little star, this condensed ball of plasma, found the rhythm necessary to create life before it had chance to cool down. They slept under the warmth of the corona until its mother let them drift through the interplanetary void; guided them towards the most suitable ball of dirt, not too far yet not too close to her.
 
-----
+And you might wonder - *"Why would the star not enjoy carry her children on her back?"* 
 
- [Back to table of contents](0-Index.md) or [Next](1-Chapter-1.md) 
+It is a well known fact that stars like to walk naked around their space: The space between their room and the bathroom. Having children around would make that experience somewhat, awkward.
 
+Not to mention the psychological trauma each children would experience watching the brilliance roundedness of her mother singing in the shower and... 
+
+Ah! Sorry, I digress.
+
+Where were we?
+
+Ah yes, the little plasma lifeforms, drifting to a planet they can call home, raining down from space to the eventual realms of the elders.
+
+That was the story the adults used to tell to all the children before the night set foot to stay. The children wouldn't have any reason to doubt it, for every few days they could see the adults walking into the desert to pick up a shooting star. Though, they didn't always returned with a baby brother or a baby sister.
+
+At times the little flame mixed with the air trapped in the foam of the sea, that's how we had the flying mantas, whales, etc. At times the flames crashed onto the wild savannahs, that's how we had the fiery felines, grazing giants and agile beasts of the mountains.
+
+That's the story of the little planet, the home of the star children... Or I should say, that was the story adults used to tell to the children.

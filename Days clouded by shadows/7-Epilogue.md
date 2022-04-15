@@ -94,9 +94,6 @@ THEN HOW ABOUT *'WAKE UP, CHILD. BRING OUR LOST STARS HOME'*? - said the figure 
 
 *"I like that... I do like the sound of that"* - said Father leaning on his staff, waiting for the day the light returns to the realms of Sky.
 
-
-
 ----
 
  [Back to table of contents](0-Index.md)
-
