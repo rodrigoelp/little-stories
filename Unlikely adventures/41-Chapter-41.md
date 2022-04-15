@@ -124,7 +124,7 @@ It was true, the clouds spiralled around a small object pulling its contents out
 
 Sunny remained perplexed with the event unfolding high above them. It was a little angry thing piercing the clouds with its impressive agility.
 
-The admiration quickly became horror; Sunny had come to the realisation the object's trajectory place them in its direct path, it was that familiar sense of horror Sunny had come to know, it told him he was running a race with thousands others dressed in white with red scarfs; it was a race in which you are running away from a big angry beast with solid horns on its head and its eyes glued to your very sorry arse.
+The admiration quickly became horror; Sunny had come to the realisation the object's trajectory place them in its direct path, it was that familiar sense of horror Sunny had come to know, it told him he was running a race with thousands others dressed in white with red scarfs; it was a race in which you are running away from a big angry beast with solid horns on its head and its eyes glued to your very sorry arse. He panicked as the person sized projectile got closer, leaving visible shock cones as it moved through the air - *"That ting is coming over here!"*
 
 *"Hey! Look out!"* - he screamed panicking as the person sized projectile got closer, leaving visible shock cones as it moved through the air - *"That ting is coming over here!"*
 
