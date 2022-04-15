@@ -1,34 +1,38 @@
 # Alleviated fatigue
 
-Annoyed and tired, Theresa found herself near the limits of her patience with Mathias. She resented every hour since Paul left her behind caring for such an uncoordinated individual.
+Annoyed and exhausted, Theresa found herself near the limits of her patience with Mathias. She resented every hour since Paul left her behind caring for such an uncoordinated individual.
 
-She gave it another thought to that last idea, Mathias had been unusually uncoordinated, moving his wings arrhythmically, he created more drag than lift or propulsion. It was like watching a teenager with strong preference towards music in which the only moving part was bobbing you head, learning to dance salsa with the heavy smoker aunty that smooches you at the first opportunity she noticed one of your classmates as the audience.
+She thoughtfully reviewed that last idea, Mathias' uncoordinated movements were unusually uncoordinated. The sway of his wings was arrhythmical, producing more drag than lift or propulsion.
 
-If she had the strength to tug him along, she would have done it a long time ago, like a child who doesn't want to leave the most amazing toy shop - *"I sweat Mat, if you flew any slower I wouldn't even be able to describe it?"*
+It was like watching a teenager with strong preferences for death metal trying to learn to dance salsa with the heavy smoker aunty that smooches you in public, regardless of the social group around you, usually your classmates.
 
-*"Don't know... we could always fly back."*
+If Theresa had the strength to tug him along, she would have done so a long time ago, like a parent would to a child who doesn't want to leave the most amazing toy shop - *"I sweat Mat, if you flew any slower I wouldn't even be able to describe it?"*
 
-*"No!"* - Theresa had fought so long for Mathias to move along that the thought of him turning back made the nerves on her back ache - *"I just had the general wonderment if we could, perhaps, be a teeny tiny wee more energetic to shorten our travel time."*
+*"Don't know... we could always fly back to Dawn."*
 
-Theresa wished Paul to be around. He, for the most parts, was her support; he knew quite well when she had reached the maximum level of social interaction to intervene and give her the necessary breathing room. However, she remembered the negative impact Paul's inexhaustible energy had on Mathias, which is the primary reason why she kindly suggested for Paul to scout ahead how long they had to fly.
+*"No!"* - Theresa had fought Mathias to move along that the thought of him turning back made the nerves on her back ache - *"I just had the general wonderment if we could, perhaps, be a teeny tiny wee more energetic to shorten our travel time."*
+
+Theresa wished Paul to be around. He, for the most parts, was her support; he knew quite well when she had reached the maximum level of social interaction to intervene and give her the necessary breathing room. However, she remembered the negative impact Paul's inexhaustible energy had on Mathias, which is the primary reason why she kindly suggested for Paul to scout ahead to tell her how much longer they had to arrive to the islands.
 
 *"I would appreciate if we stop to rest for a little while."*
 
 *"No Matt, we have rested enough"* - Theresa had to bite her lips to prevent certain decorative words to be added to the sentence. The kind of words once said would cause the elderly around to gasp, the middle aged to cover the ears of children around, and writers to replace the words with a series of dashes.
 
-*"Besides, we should be close to the Islands."* - she sharpened her sight and flapped a few times to push herself out of the way of two clouds placidly obfuscating the view below - *"What did I tell you? There! There is the archipelago!"* - The sight infused energy into her tired thoughts.
+*"Besides, we should be close to the archipelago"* - she sharpened her sight and flapped a few times to push herself out of the way of two clouds placidly obfuscating the view below - *"What did I tell you? There! There is the main island!"* - The sight infused energy into her tired thoughts.
 
-Sanctuary's archipelago, was a beautiful group of evergreen-grass covered islands, mostly formed by the tender rubbing of tectonic plates known as volcanism; though to all practical effects, nobody thought of the islands as a chain of lava spewing volcanos, instead they were a paradisiac view of sand coloured beaches, crystal clear waters and marvellous thermal ponds in which the edgiest of the characters could be tamed until you sang to the lyrics of the lack of tears when female companionship was nowhere to be found, usually shorted to four succinct words.
+Sanctuary's archipelago, was a beautiful group of evergreen-grass covered islands, mostly formed by the tender rubbing of tectonic plates known as volcanism; though to all practical effects, nobody thought of the islands as a chain of lava spewing volcanos, instead they were a paradisiac view of sand coloured beaches, crystal clear waters and marvellous thermal ponds in which the edgiest of the characters could be tamed until you sang to the lyrics of the lack of tears when female companionship was nowhere to be found, usually shorted to four succinct words 'Won't cry without woman'. Perhaps the author of the lyrics could restructure it to make it catchier.
 
-The majority of the islands were reasonably sized to be called sandbanks, that is if you ignored the oddly shaped geyser decorating it in its middle with its little patch of grass around it. Each of the smaller islands sat firmly in place with rings of coral reefs preventing sea currents from washing it away.
+The majority of the islands were reasonably sized, larger than the traditional sandbank, that is if you ignored the oddly shaped geyser decorating it in its middle with its little patch of grass around it. Each of the smaller islands sat firmly in place with rings of coral reefs preventing sea currents from washing it away.
 
-The exception to all this incoherent harmony was the main island at the centre of the formation. It was large and tall enough to be called a fjord with its top split in half by a spring emerging from within the rock, flowing down through a series of waterfalls right into a lake that disappeared into one of the many remaining lava tubes, left behind from the days of the volcano  expressed its moody character.
+The exception to all this incoherent harmony was the main island at the centre of the formation.
+
+It was large and tall enough to be called a fjord with its top split in half by a spring emerging from within the rock, flowing down through a series of waterfalls right into a lake that disappeared into one of the many remaining lava tubes, left behind from the days of the volcano expressed its temperamental personality.
 
 Theresa couldn't hide her thrilled excitement; yes, to the point of sounding redundant.
 
-On the other hand, Mathias looked utterly and unforgivingly sick.
+On the other hand, Mathias looked utterly and unforgivingly sickened.
 
-*"Everything alright there?"* - Theresa wondered if she had pushed the poor Mathias past the point of exhaustion.
+*"Everything alright?"* - Theresa wondered if she had pushed the poor Mathias past the point of exhaustion.
 
 *"I don't know... Is it too late to bail out?"* - he asked somewhat hopeful, daydreaming about the unlikely event of not having to land on the islands. It didn't last long, Theresa closed her hand on his arm and with unnatural strength she pulled him towards the ground in free fall - *"Wait! Theresa! Let's talk about this!"*
 
@@ -36,17 +40,21 @@ On the other hand, Mathias looked utterly and unforgivingly sick.
 
 *"That's not what I meant!"*
 
-They spiralled down towards the solid ground of the main island. They tumbled and spun ever faster than before, it disoriented Mathias; he thought they were out of control, or at least it felt out of control. The sensation of the tight grip told him that Theresa had no intention to let him escape.
+They spiralled down towards the solid ground of the main island. They tumbled and spun ever faster, it disoriented Mathias; he thought they were out of control, or at least it felt out of control. The sensation of the tight grip told him that Theresa had no intention to let him escape.
 
-The distance to the ground vanished in mere moments. The rhetorical, ‘In the blink of an eye’ felt to Mathias quiet literal when his feet touched the ground.
+The distance to the ground vanished in mere seconds. The rhetorical, ‘In the blink of an eye’ felt to Mathias quiet literal when his feet touched the ground.
 
 *"Ow-weee! The grass is so soft in here!"* - Theresa wasn't displaying the mature, cultured and elegant posture Mathias had known since he joined their group on the outskirts of the wastelands - *"What should I do first!? Shall I dive in the sea? Or wash my back under the waterfall, apply a mud mask, enjoy the thermal ponds..."*
 
-*"Hopefully, not all at once, right?"* - joked Mathias, it met an awkward silence. It was those sorts of situations in which Mathias remembered Paul telling him that it is better to remain ‘quiet and pretty’ than ‘loud and stupid’. Mathias had been grasping the the meaning of it through experimentation.
+*"Hopefully, not all at once, right?"* - joked Mathias, it was received with an awkward silence.
+
+It was those sorts of situations in which Mathias remembered Paul telling him that it is better to remain ‘quiet and pretty’ than ‘loud and stupid’. Mathias had been grasping the the meaning of it through experimentation.
 
 Theresa's mean look was quickly dismissed as she focused it on the clear water of the lake behind Mathias, leaving him behind. Mathias felt somewhat offended, he felt immaterial.
 
-Instinctively, Mathias followed Theresa - *the grass is very soft indeed* - he thought. The softness connected to the conditions you need to experience, as a blade of glass, to grow that sleek; perhaps the sporadic volcanic ash, a couple of eggs and maybe rinse it with some papaya. That last thought made him remember of a person washing his hair using that same treatment - *Oh Great! I came here without a plan or a topic of conversation to deal with my brother.*
+Instinctively, Mathias followed Theresa.
+
+*The grass feels soft indeed* - he thought. The softness connected to the conditions you need to experience, as a blade of glass, to grow that sleek; perhaps the sporadic volcanic ash, a couple of eggs and maybe rinse it with some papaya. That last thought made him remember of a person washing his hair using that same treatment - *Oh Great! I don't have a plan to deal with my brother.*
 
 Paul laughter brought Mathias back into the present. Paul walked towards Mathias - *"Haha, your imitation of your brother is out of this world, Issy. You even copied his wings!"*
 
