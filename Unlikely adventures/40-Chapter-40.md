@@ -2,7 +2,7 @@
 
 Sam felt the muscles around the neck relax with every passing minute under the warm sun with the gentle breeze rubbing against his skin.
 
-The shock of Yule sobbing in such heart felt manner, tucked away near a crevice back in the cave, gave him a strong reaction; she looked so fragile, so small.
+The shock of Yule sobbing in such a heart felt manner, tucked away near a crevice back in the cave, gave him a strong reaction; she looked so fragile, so small.
 
 Sam knew that grasping the depth of someone else's personality took dedication, conversations and lots of sharing together, but the first impressions he got from her hinted the ‘can do’ attitude. Instead he found a partially broken person, one with an incredible tight grip who hold onto his robes as she sought solace, and Sam noticed, a place to blow her nose.
 
@@ -104,7 +104,7 @@ Yule remained silent.
 
 *"I imagine the city is fantastic. You can see its silhouette from every single realm. I can only dream how difficult it must be to get up there"* - continued Hannah trying to break the ice - *"Out of every single bunch I've met, you must have been the first and only ones that went there."*
 
-Yule impervious concentration became pervious - *"I don't know what it look like either. We never made it that far."*
+Yule impervious concentration became pervious - *"I don't know what it looks like either. We never made it that far."*
 
 Hannah saw Yule swayed uncomfortable on the bench - *"Hannah, there are some... things hidden in that wasteland and the ruins of the city. It was everywhere we went. Those things guarded the entrance to the library, the vault. Those things became alive and attacked us."*
 
@@ -126,13 +126,13 @@ Yule turned to face a puzzled expression. She knew it is hard to understand a su
 
 *"I told you about the dragons already Hannah. Those things would emerge from under your feet, dripping that foul black goo that burns your skin and pierces through your wings. They are merciless. Once their red eyes are set on you, they will hunt you down; if you manage to hide, their screech is deafening and you will find yourself surrounded by more of them."*
 
-Yule wanted to stop, but for the first time since they began their conversation, Hannah was listening - *"We.... We only made it out of the wasteland because one of us stayed behind... and it was my fault Hannah, I couldn't... I should've hide, but the dragon launched its attack and he pushed me out of the way. I saw him lose his last breath, I saw his flame go..."* - Her chest sunk deeper, her hand pressed against her flame. New tears streamed down her face.
+Yule wanted to stop, but for the first time since they began their conversation, Hannah was listening - *"We.... We only made it out of the wasteland because one of us stayed behind... and it was my fault Hannah, I couldn't... I should've hidden, but the dragon launched its attack and he pushed me out of the way. I saw him lose his last breath, I saw his flame go..."* - Her chest sunk deeper, her hand pressed against her flame. New tears streamed down her face.
 
 Hannah heard enough of the story, she knew where it was heading. She wanted to help ease her pain, but it was awkward to console Yule, or anybody else as a matter of fact. Hannah never felt close enough with that part of her personality.
 
 Yule withdrawn her legs closer to her chest. It was that sort of position anybody take when they feel the most vulnerable. Regardless of the reason, the small figure made Hannah mindlessly sit down next to her, in an attempt to find words of solace and push the pain away, but there was no muse to guide Hannah's words, her mind was blank. Through the narrow space between Yule's arms and legs, Hannah saw her heavy fat tears cascading into the shadows. Hannah couldn't help to wonder how could Yule contain so much water being so small.
 
-*"That much salt can't be good for the fish"* - said Hannah's mouth before her brain captured the phrase, analysed it and decided it was best to not say it. She hated herself for saying such an insensitive things. Clearly she has been hanging a little too much with Amir, her manner of speaking without thinking rubbed on her, or so she wanted to believe.
+*"That much salt can't be good for the fish"* - said Hannah's mouth before her brain captured the phrase, analysed it and decided it was best to not say it. She hated herself for saying such an insensitive things. Clearly she has been hanging a little too much with Amir, his manner of speaking without thinking rubbed on her, or so she wanted to believe.
 
 Hannah heard the gurgling sound of Yule's stuffy nose, clearing a path in-between sobs.
 

@@ -20,7 +20,7 @@ The shore remained steady whilst the water ran a few metres on it, just to rush 
 
 *It was a problem with their memory* - analysed by the boy - *some people has it and others might start rambling about the transparency, refraction and reflection of bodily fluid, extracellular in nature, produced and secreted in your mouth.*
 
-*"Issy?"* - called a girl dressed in white with pale lilac wings from a nearby grotto. The words reached Ishmael's ears, but he did not reach; if anybody wanted to talk to him, they better stand close to him. Who said a good conversation requires shouting? Or, as it was the current case, a damp and sombre cave on the side of an island?
+*"Issy?"* - called a girl dressed in white with pale lilac wings from a nearby grotto. The words reached Ishmael's ears, but he did not react; if anybody wanted to talk to him, they better stand close to him. Who said a good conversation requires shouting? Or, as it was the current case, a damp and sombre cave on the side of an island?
 
 *"Issy!"* - repeated the girl popping her head from within the cave - *"Have you gone deaf?"*
 
@@ -66,11 +66,11 @@ Both of them broke in laughter once again. The laughter echoed through the mount
 
 *"Hey señorita! Wha're jou two laughin at?"* - Sunny's smile shone with the golden light of the early morning, if you are the sort of people waking up at ten past eleven. He sat next to Ishmael and leaned back to fill up his large chest with the fresh air of the beach - *"Ah! Tis is the life."*
 
-Ishmael stare travelled from the back of Sunny's back, over his iridescent pearl white wings and finally, he noticed the tore garments, parts of it would receive the term tatters to be precise - *"Not again! I repaired that shirt twice this week!"*
+Ishmael stare travelled from Sunny's back, over his iridescent pearl white wings and finally, he noticed the tore garments, parts of it would receive the term tatters to be precise - *"Not again! I repaired that shirt twice this week!"*
 
 *"Jes, but I don kno wha happen, uh? Wan momen I was followin the manta, it turns to the left and I turn to the left, then it dove in and I followed, uh! All of the sudden my shirt is burst open. Wha're jou goin to do, uh?"* - Sunny gestured reprising the pursuit that eventuated on a tore piece of clothing - *"Tis tings are difficul to avoid. Just sayin!"*
 
-The phonetic symphony of words distorted by years of nature accentuating vows and erasing a few consonants played with Ishmael's listening skills - *"Seriously, you gotta enunciate. It is almost impossible to understand you when you are all hyped"* - perhaps it was the comprehension the one getting aggravated with the butchered language - *"And why were you chasing the manta to begin with?"*
+The phonetic symphony of words distorted by years of nature accentuating vows and erasing some consonants here and there, played with Ishmael's listening skills - *"Seriously, you gotta enunciate. It is almost impossible to understand you when you are all hyped"* - perhaps it wasn't Ishmael's listening skills after all - *"And why were you chasing the manta to begin with?"*
 
 *"But to tame it, of coarse"* - Sunny's expression could have been described as an old man missing an instruction manual required to assemble a complex piece of furniture with a bent piece of metal and three thousand screws of different sizes - *"Why else would anyone chase a manta if they don want to tame it?"*
 
@@ -94,7 +94,7 @@ Ishmael shook the shock out of him - *"Balder? Oh, yes, that boulder, yes"* - re
 
 Ishmael once again felt drawn away from the world of mending and patching - *"Huh? Yes, yes, love you too. Go!"* - retiring once more to the inner parts of his mind.
 
-Amelia and Tracy knew quite well why Ishmael repeated Sunny's statement, but in all fairness, it was Ishmael's fault; he never tried to correct Sunny pronunciation. He said it was adorable nuances due to lack of adaptation. That thought made the girls remember the day Sunny arrived into their world, shifting his hair our of his rugged face and slightly crooked smile, maybe missing a teeth as he rode a coelacanth surfing the waves. They remember that wink he gave them with his careless attitude for self preservation followed by an ‘Olé!’
+Amelia and Tracy knew quite well why Ishmael repeated Sunny's statement, but in all fairness, it was Ishmael's fault; he never tried to correct Sunny pronunciation because he found those little mistakes adorable. That thought made the girls remember the day Sunny arrived into their world, shifting his hair our of his rugged face and slightly crooked smile, maybe missing a teeth as he rode a coelacanth surfing the waves. They remember that wink he gave them with his careless attitude for self preservation followed by an ‘Olé!’
 
 They didn't know what olé meant, perhaps it meant ‘Help me, I have found myself in front of this terrible beast about to maul me to death, but I am handsome’, the exclamation mark may have been translated to ‘marry me!’ if they ever wrote a dictionarium manuale from Sunny's common language. It was a sweet memory that slowly turned sour, for them, when they realised the olé was destined to Ishmael.
 
