@@ -56,41 +56,41 @@ Instinctively, Mathias followed Theresa.
 
 *The grass feels soft indeed* - he thought. The softness connected to the conditions you need to experience, as a blade of glass, to grow that sleek; perhaps the sporadic volcanic ash, a couple of eggs and maybe rinse it with some papaya. That last thought made him remember of a person washing his hair using that same treatment - *Oh Great! I don't have a plan to deal with my brother.*
 
-Paul laughter brought Mathias back into the present. Paul walked towards Mathias - *"Haha, your imitation of your brother is out of this world, Issy. You even copied his wings!"*
+Mathias wasn't trapped in his thoughts for long as Paul laughter brought him back to the present. Paul seemed mesmerised at Mathias' presence - *"Haha, the imitation of your brother is out of this world, Issy. You even copied his wings!"*
 
-*"Paul, I am not Ishmael"* - replied Mathias feeling annoyed. It was the sort of annoyance you get with every single family member who has got you confused with your brother, not taking into account your best friend and a girlfriend.
+*"Paul, I am not Ishmael"* - Mathias felt annoyed. It was the sort of annoyance that brews over time when every single family member has got you confused with your brother, not taking into account your best friend, and a girlfriend.
 
-Mathias' comments drowned in Paul's unstoppable laughter - *"Buwahaha! Your nostrils are wide open and you are even grinding your teeth exactly like Matt!"*
+Mathias' comments drowned in Paul's unstoppable laughter - *"Buwahaha! Even your nostrils are wide open, and you're grinding your teeth! Just like Matt!"*
 
-Mathias nostrils opened even wider as he felt anger rushing to his head - *"Paul! I'm Matt!"*
+Mathias' nostrils opened even wider with anger rushing to his head - *"Paul! I'm Matt!"*
 
-*"But look whos here! If it isn't Mateo!"* - Sunny's voice made Mathias feel goosebumps; like a cat who has walked straight into a dingo conservation centre - *"Ay Issy! Come outside, jor brother is here!"*
+*"But look whos here! If it isn't Mateo!"* - Mathias felt goosebumps listening Sunny's voice; like a cat who has walked straight into a dingo conservation centre on bath day - *"Ay Issy! Come outside, jor brother is here! Tis is a matter of celebration!"*
 
-The mention of his brother's name had a very different effect to the previous emotions. Mathia experienced the same awkwardness you get when you ate all the strawberry yogurt on the first tray of your mom's fridge, but she casually drops the comment she is unable to find the glass of laxatives she prepared with strawberries since you arrived.
+Mathias felt queasy knowing his brother was about to show up. Maybe queasy doesn't describe properly his feelings, he had the same reaction you get after reading the label of a strawberry yogurt, just to find out it was a powerful laxative.
 
-*"Oh, hi Sunny... I was just passing thought and guess what? Is that the time? I should continue my way"* - Mathias spread his wings, but he wasn't fast enough, Paul reached out to block his departure.
+*"Hey Sunny, I was just passing thought and guess what? We don't have to stir things up, I was about to leave..."* - Mathias attempted to escape, but Paul blocked his departure.
 
-Mathias panicked, just about to protest when a strong female arm, partially covered with her black wings, wrapped around his shoulders. She added a big grin letting him know the half hug could turn into a painful double wrist lock - *"You guys are family. There is always time for family, right?"*
+If Paul's grip wasn't bad enough, Theresa wrapped his right arm around his neck, it hurt. She had a big grin, letting him know the hug could be a lot more painful - *"You guys are family. There is always time for family, right?"*
 
-*"... Theresa, could you let me go?"* - Mathias' voice had a smidge of irritation barely noticeable. Unfortunately for Mathias, Theresa was the kind of person that can pick up the otherwise imperceptible detail. She squeezed tighter as Mathias wiggled his arm in an attempt to release it.
+*"... Theresa, I think I heard my neck crack..."* - Mathias' voice had a smidge of irritation barely noticeable. Unfortunately for Mathias, Theresa was the kind of person that can pick up the otherwise imperceptible detail. She squeezed tighter as Mathias wiggled his arm in an attempt to release it.
 
-*"And I imagine you must be the lovely ‘Tere’ Pauly has been talking about."* - said Ishmael whilst he inspected his brother. It was like watching himself in the mirror, if your reflection appeared to have the strong need to rush to the toilet after having spoiled seafood - *"But, as much as it pains me, you should let him go, dear lady. My brother finds certain disdain for my personal preferences and flamboyant behaviour."*
+*"And I imagine you must be the lovely ‘Tere’ Pauly has been talking about."* - Ishmael emerged from behind Sunny, he inspected his brother from top to bottom. It was like watching himself in the mirror, if your reflection appeared to have the strong need to rush to the toilet after having spoiled seafood - *"But I believe if others are uncomfortable they should be able to leave, my dear lady. My brother finds certain disdain for my personal preferences and flamboyant personality."*
 
 *"It is not you the one I have problems with, but that thief..."* - mumbled Mathias fixated on Ishmael's feet, almost as if he felt ashamed with being unable to stare into his brother's eyes. The butchered words didn't travel that far, but Theresa had an exceptional hearing and keen sense of timing. She let Mathias go.
 
-*"What did you say dear brother?"* - Ishmael cupped his hand around his ear, it was the sort of action Mathias found extremely irritating. Mathias nostrils widened further more.
+*"What did you say dear brother?"* - Ishmael cupped his hand around his ear, it always irritated Mathias, you could tell, he would have been able to breathe in a small bird with his wide nostrils.
 
-*"Matt!?!"* - heard Mathias, he remembered that voice, it was the voice of someone who tends to wrap their arms around your neck before you could say hi.
+*"Matt!?!"* - Amelia's excitement was clear as day. A day without clouds, fog or smog, obviously.
 
-*"... Hi Amelia"* - he replied struggling to maintain his balance once Amelia wrapped him in the tightest hug he has ever received.
+*"... Hi Amelia"* - he replied struggling to maintain his balance once Amelia wrapped him up in the tightest hug he has ever received.
 
-*"I am glad to see you again!"*
+*"I am glad so to see you!"*
 
-*"You always see him girl. We are identical"* - said Ishmael irritated.
+*"You always see him girl. We are identical"* - snapped Ishmael.
 
-*"You must be so tired Matt, I feel it on your shoulders, so stiff!"* - Amelia completely ignored Ishmael's nagging comments or Mathias' wide pleading eyes to Paul. She wasn't going to let the opportunity go away - *"Sunny made some amazing changes around here and, I guess you don't care about who made it, right? I want to show you a pond at the back! Sunny made it so the warm water of a nearby geyser mixes with fizzy rocks, it is the most amazing experience. He called it Jazz-oozy"*
+*"Oh wow, feel those shoulders, so stiff! You must be exhausted, huh?"* - Amelia completely ignored Ishmael's nagging comments or Mathias' wide pleading eyes to Paul. She would secure the opportunity to spend time with Mathias - *"Sunny made some amazing changes around here and, I guess you don't care about who made it, right? I want to show you the pool at the back! Sunny made it so the warm water of the hot spring mixes with fizzy rocks, it is the most amazing experience. He called it Jazz-oozy"*
 
-*"Oh jes, a truly formidable peas of engineering, if I may say so myself."* - Sunny felt proud of his achievement, it wasn't an everyday occurrence you managed to channel through a series of pipes made out of bamboo, filtered heavily mineral water for the enjoyment and relaxation of your muscles.
+*"Oh jes, a truly formidable peas of engineering, if I may say so myself."* - Sunny felt proud of his achievement, it wasn't an everyday occurrence when you managed to channel the rich mineral water of the spring down a series of pipes, mostly made of bamboo, making the most relaxing and enjoyable room to workout your muscles.
 
 *"Why is it called jazz-oozy?"* - asked Mathias resisting Amelia's enthusiastic nudges towards one of the caves.
 
@@ -100,10 +100,12 @@ Ishmael bumped gently his elbow on Sunny's large arms whilst shaking his head. S
 
 *"Oi! I want in too! You know?"* - Paul took off some of his garments with blazing speed, feeling his body loosing up already. It was somewhat entertaining to say the least, he ran up the hill limping on one leg whilst struggling with the other, his pants didn't want to let go.
 
-Sunny's well defined arm wrapped around Ishmael's shoulders and squeezed strong enough to snap Ishmael off his trance - *"An innocent look, my dear, that's all it was. Don't let your jealousy fool you, I didn't have lustful eyes."*
+Sunny's well defined arm wrapped around Ishmael's shoulders and squeezed hard enough to snap Ishmael off his trance - *"An innocent look, my dear, that's all it was. Don't let your jealousy fool you, I didn't have lustful eyes."*
 
-*"I know, take this as a friendly warning. Jou do not want to be found with lustful eyes towards that man."* - Sunny stirred Ishmael's gaze, until Ishmael found himself watching a very frightening girl with black wings staring back at him as she walked towards the entrance of the cave, following Paul. Suddenly Ishmael understood: it was all about survival.
+*"I know, take tis as a friendly warning. Jou do not want to be found with lustful eyes towards that man."* - Sunny stirred Ishmael's gaze towards the very frightening girl with black wings staring back at him as she walked towards the entrance of the cave, following Paul. Suddenly Ishmael understood: it was all about survival.
 
-Ishmael nodded with a friendly smile. He wrapped one arm around Sunny's shoulders, pulling him towards an empty section of the shore - *"Let's sunbathe around here, would you? I feel I need some time for ourselves."*
+Ishmael wrapped one arm around Sunny's shoulders, pulling him towards an empty section of the shore - *"Let's sunbathe around here, would you? I feel I need some time for ourselves."*
 
-The group had split in two groups, those about to absorb a healthy dose of sunlight and those checking out the jazz oozing capabilities of geo-thermally waters. She had to choose between feeling a third wheel or a fifth, assuming she still remembers how wheels worked. The prospect of both didn't sound as appealing to the various groups, so she decided to fly up towards the mountain top to listen the wind go by.
+The group had split in two, those about to absorb a healthy dose of sunlight and those checking out the jazz oozing capabilities of geo-thermally waters.
+
+From Tracy's perspective, she had to choose between feeling like the third wheel or the fifth, assuming she still remembers how wheels worked. The prospect of being surrounded by couples didn't sound very appealing, so she climbed towards the mountain's top to listen the wind go by.
