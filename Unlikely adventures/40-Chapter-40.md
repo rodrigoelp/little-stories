@@ -4,7 +4,7 @@ Sam felt the muscles around the neck relax with every passing minute under the w
 
 The shock of Yule sobbing in such a heart felt manner, tucked away near a crevice back in the cave, gave him a strong reaction; she looked so fragile, so small.
 
-Sam knew that grasping the depth of someone else's personality took dedication, conversations and lots of sharing together, but the first impressions he got from her hinted the ‘can do’ attitude. Instead he found a partially broken person, one with an incredible tight grip who hold onto his robes as she sought solace, and Sam noticed, a place to blow her nose.
+Sam knew that grasping the depth of someone else's personality took dedication, conversations and lots of sharing together, but the first impressions he got from her hinted the ‘can do’ attitude. Instead he found a partially broken person, one with an incredible tight grip who held onto his robes as she sought solace, and Sam noticed, a place to blow her nose.
 
 Each step required considerable effort because Sam wasn't used to aid a girl to walk. Add to the event Sam's stress and contained rage targeted at Amir, who had decided to follow them making kissing sounds. Sam was about to have a conversation with Amir about the sensible timing to horse around. Sam also felt his fist had a thing or two to say to Amir's jaw.
 
