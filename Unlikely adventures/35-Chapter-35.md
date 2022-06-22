@@ -211,4 +211,3 @@ The paw was larger than Amir himself, he had no idea how to wrap his hand around
 Amir grabbed the flames of the Tiger, it felt coarse yet firm like touching the fur of a very large and wild cat. Not that Amir has ever touched a cat, but the feeling was very close. Once on top he didn't want for any instruction to hold on tight, he dug himself as far as he could into the Tiger's flames - *"I'm ready!"*
 
 **Remember to stay quiet. I don want to get lost again. If you open yer mouth I'll leave ya on da side of da road. Now hold on!** - said the the large feline before it flared on, breaking into full speed a gallop into the darkness. Its intense red light grew smaller and smaller with the distance, until it resembled a miniature star pulsating before it went in a ‘*whooshhh*’.
-

@@ -128,8 +128,6 @@ The Wolf relaxed his grip of Sam and pushed himself up, looking straight into th
 
 Sam could see the Wolf's eyes had changed colours to resemble the orb floating on his hands.
 
-
-
 *"What's happening? I don't remember Wolfie doing this when it was our turn."* - asked Yule, watching in expectation the events with the same expression a reader would have if they found out their favourite book had changed its ending.
 
 The Spider uncovered her mouth, she wasn't expecting this result either - *It is hard to explain, but I think Wolf trusts your friends might have a real chance of changing everything.*
@@ -145,8 +143,6 @@ The Spider nodded.
 Yule scanned the room below her. Sam was fixated on the miniature moon, Hannah and Amir remained mesmerised by the scene playing out between Sam and the Wolf surrounded by sand suspended in the air, glistening as if it was made of shiny metallic bits. Behind them, The Tiger embraced the Turtle whilst watching a moving scene for the first time. The Bat remained seated on the ground, both hands covering her mouth as if the action could hide her shock - *"But if the light goes with them, what will it happen to you?"*
 
 The Spider limited herself to hug Yule, it was a tight and firm, the same type you would give to a family member before they embark in a long journey. In a way, it was heartbreaking. Yule wasn't much of a sentimental person, at least she hasn't been for a while now, right until this moment were she found herself wondering if she should break her rule.
-
-
 
 ***I am sure you have concluded what this orb is*** - said the Wolf, who's coarse voice filled every empty space in the chamber.
 
@@ -223,4 +219,3 @@ Behind them, Yule had noticed the spirits' shape became fuzzy as their bodied dr
 Once again, Yule's little flame skipped a beat or two; her chest ached and her throat felt as if a large stone climbed up all the way from her stomach. She swore never to be weak again, but unfortunately for her, reason is not in charge of emotions.
 
 She broke down in an uncontrollable sob as she experienced once more the bitter taste of losing those she cared about.
-
