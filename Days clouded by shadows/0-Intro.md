@@ -1,16 +1,22 @@
 # What is this?
 
-There is this little game called "Sky: children of the light" which has lots of meaning and content behind it, yet it lacks a story to thread the environments you visit. Inspired in its beautiful story and content, I decided to write these stories to fill up the gaps left by the original creators, providing a deeper meaning to the sacrifice the inhabitants perform as they continue their journey and grow closer to friends.
+This story is dedicated to its inspiration, a game called "Sky: children of the light".
 
-This is a sort of thank you for inspiring me yet, I lack so many attributes to be a good writer or storyteller. However, I already shared these ideas with others, gained perspective that keeping ideas to myself keeps me locked in a world in which I will continue to doubt if I have anything others might be interested.
+It is a meaningful and beautiful game, filled with diverse and rich visual content, yet it lacks an explicit storytelling element, that fundamental thread reeling you in. It isn't necessarily a bad thing, but it enables others (like yours truly) to idealise this little confabulation.
 
-To those of you sharing your love: Thank you, you provided motivation to make this public.
+The inspiration crystallised into the descriptions of the realms, followed by dreams and the need to share the ether required to fill up the gaps, providing a deeper meaning to the sacrifice the inhabitants perform as they continue their journey and grow closer to friends.
 
-To future readers: Thank you, your time spent reading my words and ideas is dearly appreciated, even if you don't share a comment back.
+I guess I am saying, this is my thank you note to you, the team inspired me to refine my attributes and skills. They imbued the desire to become a good writer or storyteller. Though let's be honest, I'll be far from anybody recognisable for their talent.
 
-To critics: Thank you as well, positive and negative feedback helps others organise their train of thoughts and tune the senses.
+I shared these ideas with others gaining new perspectives about reframing my imagination to engage others. It was fuel to my delusional mind.
 
-Hope you enjoy it.
+*To those of you sharing your love*: **Thank you,** you gave me the motivation to make this public.
+
+*To future readers*: **Thank you.** The time spent reading my words and ideas will be deeply and dearly appreciated, even if you don't share a comment back.
+
+*To critics*: if you share any feedback; positive or negative, it will help me to organise my thoughts and to tune my senses. It helps me to become better.
+
+I hope you enjoy it.
 
 ----
 
