@@ -2,11 +2,7 @@
 
 *"(cough cough cough)"* - Sam abruptly woke up, felt like air was rushing through his lungs for the first time in a while. He laid on the soft sandy floor next to the still bodies of Amir and Hannah.
 
-
-
 *"... it hurts, doesn't it?"* - said a soft female voice from above - *"I never liked failing this trial. Never got used to the cold water."*
-
-
 
 Sam was disoriented once more, he was back in the candle-lit room with the soft sand and the statue at its centre. Pushing himself up, located using the echos the source of the voice and there she was, sitting on the statue with her legs crossed, a small girl with braided hair and a red bow, her clothes more elaborate than his; the fabric was still linen but it decorated with pink and red feathers intertwined with laces shining in this shaded room. She had an eager look as if she was waiting for an ‘Uh?’
 
@@ -60,7 +56,4 @@ Her smile flicked like a jolt of a bad memory runs through your brain, slowly er
 
 Sam turned to face the statue once more - *What does she meant with little moth?* - asked Sam to himself, then stared back at the statue - *Ok judge... Bring it on!* 
 
-
-
 A flash of blue light showered Sam and his body dropped heavily on the soft sand next to Amir and Hannah.
-

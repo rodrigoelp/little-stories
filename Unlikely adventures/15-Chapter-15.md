@@ -1,5 +1,3 @@
-
-
 # Rubble
 
 Hannah, Sam, and Amir remained in the middle of the corridor looking at the possible paths ahead.
@@ -12,7 +10,7 @@ The maze gave the impression it was designed to accommodate giants, or at least,
 
 Hannah missed her wings, a few flaps and they would have flown straight to wherever they needed to go. How conveniently-inconvenient was this restriction.
 
-Sam felt Hannah's pre-occupied mind trying	 to work out possible ways out. He just observed some of the little details of the world around. His brain still churning, trying to understand the odd sensation when they first arrived - *Why was everything so... sandy?*
+Sam felt Hannah's pre-occupied mind trying     to work out possible ways out. He just observed some of the little details of the world around. His brain still churning, trying to understand the odd sensation when they first arrived - *Why was everything so... sandy?*
 
 Amir walked up and down the corridor, he had found a few blocks carved out of the wall, sort of like a stair, as the elevated platform curved out of sight into a foreign passage.
 
@@ -30,19 +28,13 @@ Amir walked up and down the corridor, he had found a few blocks carved out of th
 
 *"Isn't the phrase: We came together, we stick together?"* - corrected Sam as he turned to face Hannah's back as she walked away, eastward from the gate. Both Amir and Sam followed her.
 
-
-
 The path bent and turned slightly a few times, coming to an abrupt interruption as a gap removed a large part of the corridor, leaving three floating boulders, suspended in midair by invisible forces. The boulders rotated freely, defiant of gravity. The tiny leverage of the air passing through made the boulders softly spin.
 
 *"That does not seem safe"* - remarked Hannah looking apprehensively at the nothingness below the boulder - *"I think this is a dead end. Let's go back."* - she continued as she marched west followed by Amir.
 
-
-
 Sam remained behind, silent and entranced by the dance of the boulders, disconnected from reality just suspended by magical forces. 
 
 Sam heard the faint action of his friends' steps and knew he had to get going. As his eyes wandered away of the boulders, his gaze drifted up towards the black featureless and monotonous sky, he noticed up above him at the edge of the walls, little spider decorations discreetly carved at random locations. The tiny spiders seem to be weaving the strata lines trapped in the sandstone, yet they all had something in common. They all faced eastward, past the gap and beyond into the depths of the interrupted corridor. He opened his mouth to report his finding but, Hannah and Amir had disappeared looking for a safe passage on the other end of the corridor. He followed.
-
-
 
 A few turns and twists away from Sam, Amir's finger travelled the groove of the little grey lines captured in the stratified sandstone. His little game of chasing the lines came to an end when he ran into Hannah's back.
 
@@ -90,13 +82,9 @@ Sam limited himself to use his preferred way of explaining things. He shrugged.
 
 *"It means ‘stay still’ in old tongue"* - replied Hannah - *"How can we stay still if we need to continue on?"*
 
-
-
 A thud bounced off the walls. Sam and Hannah ran around the elevated gravestone to find Amir flat out spread on the floor.
 
 Amir lifted his head enough to let a *"OuhmmMmm"* out as a formal complaint with a mouth filled with sand.
-
-
 
 *"Are you alright?"* - asked Hannah as she lifted him up with care.
 

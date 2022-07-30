@@ -12,11 +12,7 @@ Now Sam stopped to think about the concept of snow - *how did he know what snow 
 
 *"Seriously what is in this water? My leg went numb again! I can't walk, it hurts!"* - replied Amir, covering the subtle fear sipping though the tone of his voice.
 
-
-
 Sam stood up calmly, took a deep breath and using the full extent of his lungs called his friends - *"OI AMIR! I AM COMING NOW!"*
-
-
 
 A few moments of stillness gave the impression that Amir and Hannah drowned due to the shock - *"SAM?????"* - said Amir breaking the silence of the frigid environment.
 
@@ -42,8 +38,6 @@ He could see in the corner of his eye the water starting to reverse, rushing bac
 
 *... 3... 2...* - Sam started running once more fixated on a hill about 20 metres away, his feet moving as if he had skates, pushing him forward as he continued to get closer - *this would be rather fun... under other circumstances* - he though, reaching the base of the hill and pulling himself up crawling on his arms and legs.
 
-
-
 *"How are we?"* - queried Sam, trying to orient himself.
 
 *"Good... my foot is still blue... I wonder if it froze..."* - said Amir.
@@ -56,15 +50,11 @@ He could see in the corner of his eye the water starting to reverse, rushing bac
 
 *"I want you to touch it!"* - said Amir with the voice that clearly showed he was doing it to annoy her - *"Just tell me if I am going to lose the leg!"*
 
-
-
 Sam was having trouble concentrating on counting and he missed one of the cycles - *"Could you both remain quiet? Please..."* - Sam focused again, the wave continued on its periodic dance, going down, slowing it to a halt and returning on the ice swallowing it whole. At its peak, Sam counted back to 2 and jumped skating to the 3rd hill - *I am still on the right track a few more and I might be able to see them... 4... 3... 2...* - and another jump and Sam continued skating at the same pace, the 4th hill seemed to be further away. He moved his legs faster to catch up. The water started to rush back over the ice. He was a fair distance from getting over the crest but he needed just one extra second or the water was going to reach him.
 
 A gush of water rushed in front of him, he skipped over, a larger gush covered a large portion of his path, he deviated a little to avoid most of it, dry land was coming if only he could jump and he took the dive, momentarily flying over some of the water landing on the hill - *wesh! I made in the nick of ti...* - thought Sam interrupted by the feeling of carving knives sculpting his right leg.
 
 *"AAARRRGGGGHH!!"* - he yelled to allow the pain to escape his body as he dragged himself higher. Even though his leg wasn't in the water any more, he continued to feel the cold water cutting through the tissue, he bit his hand to contain some of the pain and here, Sam learnt a valuable lesson for the future; the mental image of biting your own hand to tolerate some other pain only leaves you to two sources of pain - *this is not real, this is not real, this is not real* - repeated mentally. Somehow, clenching his eyes made the pain go away.
-
-
 
 *"... I know you said we should stay quiet but... you just screamed. Have you drown?"* - said Amir.
 
@@ -74,21 +64,15 @@ A gush of water rushed in front of him, he skipped over, a larger gush covered a
 
 *"I am fine"* - lied Sam - *"... it looks easier than what it is and I... slipped and twisted my ankle."*
 
-
-
 The murmur Amir had with Hannah discussing their future death told Sam his friends were close - *"Where are you now?"*
 
 *"On a bigger chunk of ice"* - said Hannah in a sort of lament - *"We tried reaching one of the hills but Amir slipped again and fell in the water for an instant."*
 
 *Their voices are so close* - thought Sam - *I gotta see where they are at*.
 
-
-
 Sam leaned forward and put weight on his leg, shooting pain blinded him for a second then he could see an iceberg spinning with the two children on it. Hannah seemed to be scouting at the same time and she had spotted good news - *"Sam! Here!"*
 
 *Despite the horrible awful pain and the blue colouration, my leg feels all right* - thought Sam in an attempt to persuade himself to press forward, he made a few tentative steps, as his brain adjusted to ignore the pain - *it is not real, it's not real* - continued Sam, managing to subside the pain. His mind was in a state of flux, similar to the tide - *I can do this* - continued Sam as someone reading a book of positive reinforcement, his mind getting sharper and less distracted about the immediate situation.
-
-
 
 His legs started to move without him thinking about it and leapt forward jumping on pieces of ice floating in the current, a few of the chunks splashed down dipping his feet slightly in the water, he ignored the ache coming from his legs as he continued moving through the frozen world.
 
@@ -122,15 +106,11 @@ Sam reflected for a moment - *"You can't see the light there? just above the hil
 
 Amir stared at it trying to find the elusive source in Sam's imagination - *"Nope"*
 
-
-
 Sam closed his eyes and took one big breath. 
 
 Exhaling the air felt quite nice, he had grown used to the lack of sensation of the snow between his fingers and the multiple sources of pain had quiet down considerably from a few moments before - *right... maybe this is part of the challenge* - he thought analytically whilst crossing his legs under his body and pushing himself straight up.
 
 Sam opened his eyes to analyse the path between them and the blue light above the hill, which had a higher elevation than the rest he has seen so far, it wasn't surrounded by icebergs they could use to close the gap and reach it. There wasn't any ground or bridge connecting the hill with any other platform.
-
-
 
 *"What now chief?"* - asked Amir.
 
@@ -149,8 +129,6 @@ Hannah looked at Amir - *"What is?"*
 *"... and that is amusing because?"* - tried to understand Hannah.
 
 *"... I don't know... I just think it is interesting!"* - replied Amir - *"If you just stare at it, you don't know if your eyes are open or closed... almost like a dream!"*
-
-
 
 *Almost like a dream* - thought Sam - *a featureless sky is like having your eyes closed*. 
 
@@ -228,14 +206,9 @@ It wasn't long until the trio had regrouped and looked towards the top of the hi
 
 *"Your imaginary light? No... but hey! There is a stone with drawings on the floor"* - replied Amir. All three looked down.
 
-
-
-
 ```
 Open your heart to the spirit of the water for you have gained the strength to beat adversity.
 ```
-
-
 
 *"What does it mean?"* - asked Hannah
 
@@ -246,4 +219,3 @@ Sam carefully drove the flame closer to his chest, its boundaries faded away as 
 *"Sam? What did you do? You're glowing!"* - said Amir, covering his eyes as Sam's glow increased in intensity.
 
 An imaginary audience saw the scene fading to white.
-

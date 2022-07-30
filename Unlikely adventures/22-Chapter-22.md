@@ -63,4 +63,3 @@ Mathias nodded and watched Paul take off like a projectile with a target locked 
 Mathias shook himself awake and thought to himself - *So glad he is my friend, it must be awful to have to fight with him.*
 
 Then Mathias proceeded to open his wings and took to the air in an attempt to catch up with Paul.
-

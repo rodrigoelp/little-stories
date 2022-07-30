@@ -1,5 +1,3 @@
-
-
 # Fair compensation
 
 Amir sat on the floor as he resentfully observed the wall - *"What now?"* - he added, still rubbing his head.
@@ -72,8 +70,6 @@ Sam's flame beat with such force, his entire body moved as his chest glowed. He 
 
 Amir felt her stress slowing building up, but he wasn't aware what was causing it.
 
-
-
 The path ahead was uneventful, the corridor undulated gently as it curved softly towards the north. They walked several metres more, went past more 'fake' windows as they grew increasingly disoriented. Amir's focus on Sam was interrupted by Hannah running further ahead.
 
 *"There's a gate!"* - she said.
@@ -98,8 +94,6 @@ Sam ignored part of the conversation, mesmerised by the composition and the lack
 
 *"What does it say down there?"* - asked Hannah pointing to some engraving below Sam's hand. Sam felt like the engraving wasn't there just an instant ago.
 
-
-
 ```
 A warrior found two shepherds making bread, one of them had three loaves and the other, five loaves. They agree to share the food.
 
@@ -107,8 +101,6 @@ After they had eaten, the warrior gave eight gems as a payment for his meal.
 
 How should the shepherds fairly divide the the payment?
 ```
-
-
 
 They all read the message, it required some thinking. Sam felt his brain wasn't right to solve this and looked optimistically to Amir.
 

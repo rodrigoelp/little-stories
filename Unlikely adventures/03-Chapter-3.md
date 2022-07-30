@@ -6,11 +6,7 @@ Sam was temporarily blind in an attempt to understand the last few events, the i
 
 Holding his foot with both hands in an attempt to not howl words that could only be described with a series of high pitched tunes, he turns and realised the portal was gone, its frame fractured and the little green island he was standing not so long ago, vanished.
 
-
-
 *Am I dreaming? what is going on here?* - He thought as he stood up, trying to balance his weight on his good leg.
-
-
 
 Walked a bit closer to the empty fractured gate, staring for a moment to the vast sea. He dipped the aching toe in the water, its freshness made the pulsing complaining toe calm down. The now free mind realised the crunchy and unpleasant nature of the sand which he tried to wash by drinking a few sips of the water onshore.
 
@@ -40,8 +36,6 @@ Against all good judgement and the feeling someone once told him *"if someone ca
 
 Somewhat embarrassed and feeling his face burning, Sam tried casually to ask as he stepped deeper into the cave - *"... and you are?"*
 
-
-
 Light zipped through the other end of the cave, filled with gravel, a scent revealing sweet water around and a few patches of green here and there. Sam hopped on a few rocks, nearly falling on one of them, slippery from water dripping from the ceiling. Climbed to the top towards the light to be greeted by a young man, standing with his hands on his waist. The man could be described as a tall-thin man with white short hair and pale whitish skin, bright blue eyes hidden under a plain mask, light pale linen garments with silver finishes, sandals and somewhat translucent skin, translucent clothes, translucent hair, all of him was translucent.
 
  *"Holy FLOPS! What flop is wrong with you???"* - Sam said.
@@ -49,8 +43,6 @@ Light zipped through the other end of the cave, filled with gravel, a scent reve
 *"I... well... (sigh)..."* - said the man chest fallen - *"... you know, I never thought the conversation would start like this... I expected an ‘Oh, hi! You look rather impressive, my name is...’ "* - awaited the young man gesturing to Sam as someone trying to get an answer out of a parrot.
 
 *"Holy crab man, seriously! Look at you! What is wrong with you? I can see through you! Why can I see what's behind you?"* - said the inquisitive Sam trying to understand the entity in front of him.
-
-
 
 The young man realised how difficult the communication with the little child was going to be - *"I'll tell you what I am IF you tell me your name, ok?... so... we.... wait! What are you looking at now?"* - said the young man impatiently to the distracted child who was now walking back to the cave.
 
@@ -75,8 +67,6 @@ The spirit cleared its throat (its spectral form anyway) and proceeded loudly, o
 *"Dude... seriously? It is Sam, that is it, Sam and nothing else."* - Reproached Sam, getting slightly annoyed.
 
 *Got the feeling these two will become really good friends and a huge pain in my astral arse* - thought the spirit.
-
-
 
 Amir cleared his eyes of his joyful tears - *"Who's the ghost here?"* - said pointing with his thumb at the young man.
 
@@ -106,7 +96,4 @@ Sam looked at the spirit from top to bottom - *"Not sure"*
 
 *"Or maybe Doug"* - said Sam helpfully.
 
-
-
 The trio continued discussing possible suitable and equally unacceptable names for Virgil.
-

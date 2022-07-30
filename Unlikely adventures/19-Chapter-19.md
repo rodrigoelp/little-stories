@@ -20,17 +20,11 @@ Sam's snarky comment wasn't met with the expected response. Amir remained silent
 
 *"(Sigh)... let's go buddy."* - added Sam, gently pulling Amir's arm as they followed Hannah.
 
-
-
 It was hard to judge how long they have been walking in the maze, the black sky gave no indication of the passage of time; boredom was their only measurement at hand. Hannah felt the pressure of leading the boys through the maze, she felt the responsibility of having solved two of the puzzles. She was painfully aware of Amir's uncharacteristic quietness and lack of humour. She wanted to prove herself that she doesn't need help from others and she is a good addition to Sam's and Amir's partnership.
 
 She walked every corridor followed by Sam and an Amir who has been, almost literally, dragged by Sam the whole way. She knew they were lost, she didn't want to admit it.
 
-
-
 Time continued its unstoppable passage. In an attempt to figure out which corridors they had walked already, Hannah came up with a system in which, she would push a few fists of sand next to the corner's edge, before they all turned. That way, she would leave behind a marker and recognise a used path. Little did she know, the sand didn't like their new arrangement and returned slowly to its original location as soon as the children were off its sight.
-
-
 
 Every new passage they turned into, Sam focused on the numerous spiders they have gone past. Somehow he knew they were going in circles; he had come to recognise the shape and size of spiders of every "new" corridor.
 
@@ -45,8 +39,6 @@ Sam gave up on trying to reanimate his now zombie companion. He looked up to the
 Sam felt Hannah wasn't listening to his arguments, which was true. This was partly due to the fact, Hannah's mind was busy churning the intricate art of self recognition, but Sam was struggled to clearly say what was in his mind.
 
 As they progressed through the maze, Sam decided to practice the art of delicately guiding someone who doesn't want to be guided by planting the seed of an idea that eventually will sprout on his victim, or should he say, companion. He didn't like the manipulative tactic but, he had walked by the same corner one too many times.
-
-
 
 *"Uhm"* - said Hannah thoughtfully as she stood on another bifurcation - *"The one to the right seems scary, let's take the one on the left."*
 
@@ -72,11 +64,7 @@ Sam read perfectly the tone of doubt in Hannah's voice - *"Wow! Wow! Almost felt
 
 Sam knew this charade wasn't going to last long; Hannah was a clever girl and soon enough she was going to realise what he was doing. He felt evil tricking Hannah with such devious behaviour, but he had found a way to help and he wasn't going to let it go to waste.
 
-
-
 He followed her providing commentary as they walked along deeper into the maze.
-
-
 
 Hannah's eyes opened wide as she the deep long passage opened up to a large big hall without a roof. The hall was totally empty, devoid of any meaningful feature other than four walls and a gate with rounded top. It was made out of solid sandstone, ten glowing gems drawing a hammer and an anvil. They had found the gate of the smith.
 
@@ -95,8 +83,6 @@ There, instead of a smooth texture highlighting the gems contained by the conste
 Finally, observed Hannah, the gate's sandstone was jagged and its colour far from the pure white as the previous gates; it gave off a metallic appearance from afar but from this distance she could see the grains trapped in the stone. The quartz in the stone had been compressed to a scaly shape, bouncing off any light with a dirty-silvery-greyish hue.
 
 Hannah could only think of the gate as elaborate, over-engineer, overloaded, oversaturated, overcomplicated and all over the place. She continued examined the door and all its details.
-
-
 
 *"The room is totally empty"* - observed Sam - *" Should we look for clues about what do to now?"*
 
@@ -171,8 +157,6 @@ Amir turned around and as surprise dawned on him having his thoughts revealed in
 She took a few steps towards Amir and gave him a big hug - *"Thanks! That was... I am glad you are talking again."* - she said with her voice muffled as she dug her face deeper in Amir's chest.
 
 *"OK!"* - she said turning around and taking a deep breath - *"back to the gate! How could we find a clue to help us open the gate?"*
-
-
 
 They all stared at the gate, getting interrupted by the snap of Sam's fingers. An idea had formed in his mind.
 

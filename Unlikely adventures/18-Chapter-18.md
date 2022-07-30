@@ -70,8 +70,6 @@ Hannah followed the echoes of Sam's voice, another turn right and she saw them. 
 
 *"How did you two got here so quickly?"* - asked Hannah. The corner of her eye caught the mind-absently Amir which caused her guilt to rush through. She tried to shake it off by following her question with an statement before Sam had a chance to answer - *"Is that the gate? It looks gorgeous!"*
 
-
-
 Hannah got her eyes fixed on the gate; she felt ashamed of herself, she felt much worse when her eyes and Amir's met briefly.
 
 She turned to face the gate.
@@ -107,8 +105,6 @@ Hannah wanted to apologise to Amir but, she wanted to apologise without Sam over
 *"Sam. Let's focus on getting out of here."* - she stated promptly before Sam continued pushing for a resolution - *"The faster we get out of here, the faster I will get to talk to him."* 
 
 *"Oh..."* - said Sam doubtfully - *"Ok."*
-
-
 
 Hannah refocused on her research of the gate and the now ten quartz stones gently glowing back at her. She knew quite well her constellations, there was something strange about the collectors with those extra quartz.
 

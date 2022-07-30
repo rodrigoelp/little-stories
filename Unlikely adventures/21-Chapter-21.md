@@ -50,8 +50,6 @@ Sam looked back expecting the ghastly images to become reality, but nothing came
 
 Hannah nodded whilst she moved her arms to gently release Amir on his knees. Then, she walked to the gate to observe it up close.
 
-
-
 The gate was the detailed rendition of a library, there was no single space in the gate in which you couldn't see the surface covered with book spines with various titles written on it such as: ‘Commuters of the lost Ark’, ‘Rise and fall of wonderful civilisations’, ‘Deadly Sins’, ‘Twenty-thousand leagues above the clouds’, ‘A guide for those expecting the unexpected’, ‘Lord of the annular metallic loops’, ‘Thief of time’, ‘Cats that may be dead or alive when placed in boxes, for dummies’, among many other titles.
 
 The shelves of books covered every single inch of the gate, its centre was the one exception. In there, the sculpture of the Wise stood straight, her head slightly bowed down, her eyes closed and on her hands rested a lantern with six gems at each corner of the elongated hexagon encasing a crystal flame. The lantern itself had a surprising amount of detail.
@@ -64,8 +62,6 @@ Sam eyes travelled around the room, with the exception of the gate and the scary
 
 Hannah's eyes got drawn to a book titled ‘What to do if you are left behind’, she wished she could read the contents of the book. Her hand hovered a second or two above it, she decided to continue looking around, eventually setting her analytical mind on the lantern the Wise was holding. She read the message hidden between the gems:
 
-
-
 ```
 Sciential autumn scitote
 
@@ -73,8 +69,6 @@ Quia Universum
 
 Sci te ipsum
 ```
-
- 
 
 *"Science is knowledge, the cosmos is knowledge, know yourself?"* - translated Hannah, mostly to herself though Sam overheard the words and didn't make any comment about it.
 
@@ -116,8 +110,6 @@ The ruins of the Golden City had the Warrior. Someone totally dedicated to prote
 
 And finally the Wise, she was the keeper of the knowledge of the previous civilisation.
 
-
-
 *Do you have an answer?* - queried the voice as the statue pushed its face forward into the light. The two glowing orbs burnt intensively.
 
 *"I think they are protection for their people and us?"* - answered Hannah.
@@ -130,7 +122,7 @@ The statue smiled and waved her hands - *It is done.*
 
 The sound of crushing bones flooded the alley barely visible on the bookcase covered walls. Giant hairy legs appeared at the entrance of the room revealing a massive black spider as wide as the alley. It sprung from the edge of the alley onto the spider web structure and ran straight to Sam.
 
-"NO STOP IT! PLEASE! RUN SAM! RUN!" - screamed Hannah.
+*"NO STOP IT! PLEASE! RUN SAM! RUN!"* - screamed Hannah.
 
 He remained silent watching the monstrous critter approaching; terror flooded each fibre of his being. He turned to look at Hannah just before the spider pounced on him sticking its fangs deep in his neck. Black veins grew from Sam's neck, his face showed pain. The black veins slowly covered his entire body, paralysing him. A moment after, Sam was nothing more than a black statue resting on the spider web. The spider began threading silk around his body, making a cocoon.
 
@@ -265,4 +257,3 @@ Amir was shocked, his face told Sam the thought ‘What should I do now?’ trav
 Hannah squeezed the yellow light between her fingers. It burst enveloping the children in warmth and a peacefully melting feeling. Hannah blinked reflexively the instant the flash grew, when she opened it again, she laid on the floor next to Amir, holding his hand, surrounded by the flickering light of candles dancing to an inaudible tune. The children had returned to the cave.
 
 Hannah didn't know what the future was going to be like, but she knew she was not going to let go of that hand holding her gently but firmly.
-

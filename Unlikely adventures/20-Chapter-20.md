@@ -48,8 +48,6 @@ A hint of a smile signalled the tension stored in Hannah's body had been release
 
 *"Nothing, it is all good"* - she replied to Amir's comment - *"Come, let's go this way."* - she broke into a sprint. 
 
-
-
 The trio ran down the corridors, following the spidery ornaments as these advised the path on which to travel. In a matter of a few minutes they had found a new gate, or should we say, they found two gates located one next to the other, each decorated with opposing themes.
 
 The gate to their right was decorated with solar allegoric sculptures. A sun beamed light down onto a steep mountain side, the stone stratified lines drew a jagged scenery, slanted towards the left. The side of the mountain glistened with infinite crystals, composing an imagery of snow covered mountainsides.
@@ -65,8 +63,6 @@ The gate to their left had a moon casting soft light drew lines as if the moon p
 *"Check out the sand on this gate..."* - said Amir slightly touching one of the gates. A loud bang made him jump as both gates swung open revealing a long corridor sandwiched between two massive walls starting and ending on gates, one of which the children were currently using to observe their path ahead.
 
 It would've been an easy walk if it wasn't due to the fact that the ground was missing. Instead, three lines of tiles floated suspended in midair from the gate of the twins, all the way until the end in straight line.
-
-
 
 *"(Gulp!)"* - scientifically stated Sam.
 
@@ -196,8 +192,6 @@ The walls were trying to recover from the surprise, they were caught off guard b
 
 Sam learnt at that precise moment a valuable lesson. When someone pissed off tells you to shut up, you obey instantly.
 
-
-
 The barrage had become heavier, or so Hannah felt, the stones were specifically targeted to her head or her legs. The walls seemed to know where to hit to make her trip. She was getting closer to the end. 
 
 She extended her arms and jumped before stepping on the last row; Sam knew she was going to be a bit shy of reaching out the edge and he stretched himself; reached for her hand and pulled her in.
@@ -247,4 +241,3 @@ Hannah's gaze travelled from Amir to the black gate in front of her - *"The Warr
 *"You don't want to know"* - said Hannah grimly in reply to Sam's question - *"We should march on, it may not be a good idea to remain here."*
 
 She carefully helped Amir to stand. They all squeezed between the broken gate and advanced into the next challenge. 
-

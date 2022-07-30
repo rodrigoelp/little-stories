@@ -41,4 +41,3 @@ Sam couldn't even make up if Amir was breathing or not. He stretched an arm to r
 After a while, the pair of friends remained speechless. Sam was unsure what was the right thing to say. He looked at his friend unable to break the gloom blinding Amir. His despair was replaced with anxiety when Amir stood up and quietly walked in the direction Hannah had disappeared in.
 
 Sam followed him worried.
-

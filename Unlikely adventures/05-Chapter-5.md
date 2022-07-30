@@ -2,8 +2,6 @@
 
 The sun, knowing someone had to study the definition of angles on their geometry book, watched from his acute position the tree creatures walking around the dunes. More specifically, saw Virgil getting frustrated with a pair of kids who did not want to listen and continued running tangentially to their expected trajectory. The sun is such a nerd.
 
-
-
 *"Oh, divine flame! Why is there so much sand?"* - complained Amir whilst playfully rolling down the dune. Irony wasn't one of his strong suits.
 
 *"You could stop rolling and it would be less annoying"* - openly stated Virgil waving in an explanatory way to just the air.
@@ -18,8 +16,6 @@ The sun, knowing someone had to study the definition of angles on their geometry
 
 *"I mean we need to get to the cave guys. It is time for us to continue the journey ahead. There are trials you need to take"* - answered Virgil in an attempt to explain to the water why it shouldn't slip through his fingers. Surprisingly, it worked. Both kids bolted up and sat cross-legged looking straight at his semi-translucent face.
 
-
-
 He looked down and they waited in perfect silence - *"Do you guys want to do the trials?"*
 
 *"Yes, yes!"* - replied the children both in unison - *"it sounds really fun!"*
@@ -31,8 +27,6 @@ He looked down and they waited in perfect silence - *"Do you guys want to do the
 *... not to mention they will forget this conversation before I* - continued Virgil in his thoughts, only interrupted by the silence bouncing in his paranormal and metaphysical mind - *"What did you say?"*
 
 *"We are waiting for your instructions!"* - said Amir obediently - *"I don't know what trials are but it sounds exciting!"*
-
-
 
 Virgil perfect stare, with his bright deep blue eyes, followed an arc from Amir's face to Sam's. If both of them were puppies, they would be making big eyes and wagging their tails whilst waiting for a treat - *"but I am not sure you are ready for it..."* - he teased - *"... you need discipline and patience..."*
 
@@ -82,7 +76,4 @@ Sitting near the edge, a small girl with a red bow at the top of her braided hai
 
 *"... Yule... don't be weird, ok?..."* - said frightenedly the green-winged boy - *"You creep me out when you talk like that..."*
 
-
-
 Yule remained silent, placidly watching from the distance the boys twirling mid-air. 
-

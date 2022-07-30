@@ -12,8 +12,6 @@ Sam knew what to expect next as the events unfolded in his imagination: he was g
 
 Sam turned around expecting the companionship of his friends but remembered they might be sucking each others faces and the foul mood appeared in his heart - *Argh! Better to face the wolf than remain in that room.* - He thought and stepped further into the chamber, across the lively water and onto the island.
 
-
-
 *"Hello? Mister Wolf?"* - Sam said - *"Could we be reasonable here and just talk?"*
 
 *What would that achieve?* - said a melodic voice, almost whispering to Sam's ear.
@@ -102,8 +100,6 @@ Sam remained silent an instance. He tried to get his memories in functional orde
 
 *Oh sweet wolf, you will not.* - replied the spider - *These two are just children, they will learn in time.* - she stated looking at Amir and Sam.
 
-
-
 Sam's gaze travelled from the spider to the sobbing turtle and finally on the wolf. He could see how angry the wolf was, his fangs looked menacing. Sam kneeled on the sand and bowed - *"I am sorry for Amir's comment. He means well though his mouth is not connected to reason."*
 
 *"HEY!"* - protested Amir.
@@ -151,4 +147,3 @@ Sam decided it was best to leave the room. He looked at the decorated benches th
 *"Oi! Are you coming or what?"* - asked Amir.
 
 Sam looked at his friend and smiled. As he followed Amir, he wondered if the spectres were as good friends as his companions and decided it was better to leave any jealousy behind. He understood he wasn't losing his buddy to Hannah, he just needed to share his happiness.
-

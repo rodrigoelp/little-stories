@@ -20,19 +20,13 @@ Sam peered through the clouds - *"Virgil?"* - a ghostly shape deformed the path 
 
 *"How short?... ooh! Black and lime butterfly!"* - exemplified Sam to Virgil's lack of amusement.
 
-
-
 Virgil turns around to face Amir, who was pleasantly embracing a dream in which he won a bet against Sam beating him 20 times in a row and Sam had to be called Mr Smelly Hole. Virgil could pierce through the undeveloped mind of the children easily, he felt cheeky long enough to bump a clump of suspended drops, rushed towards the ground in free fall thanks to the spacetime curvature.
 
 *"Cough, cough, cough... w... what happened?"* - said Amir clearing his throat of water.
 
 *"Maybe your otherworldly fantasy made you drool in abundance overflowing your capacity to swallow"* - snarkily commented Virgil. He felt odd as his immaterial muscles flexed the contours of his mouth into a concave shape, also known as a smile - *"fortunately, you two drifted to the entrance of the cave..."* and as on queue, the clouds broke apart to reveal a deep cave running deep into the mountain.
 
-
-
 Understanding dawned on the children and made them appreciate the entrance to the cave of prophecies.
-
-
 
 *"Wow!"* - appointed Sam.
 
@@ -66,8 +60,6 @@ Understanding dawned on the children and made them appreciate the entrance to th
 
 *"Hey! What are you saying, Amir? You are mean!"* - said Sam reproachfully - *"Do you like this girl?"*
 
-
-
 Amir turned to face Sam - *"Duuuuude, not cool!"* - his face was turning redder by the second. He gulped air, in an attempt to recover some dignity, and turned around to face Hannah smiling a little - *"Just... ignore my friends... friend!... One friend, not many... because there is nobody else here, right?"*
 
 Virgil rolled his eyes, Sam turned to face Virgil and Amir, he was speechless, softly leaned towards Virgil and asked - *"Is it for real she can't see you?"* - receiving a quick nod from Virgil
@@ -78,13 +70,9 @@ Virgil rolled his eyes, Sam turned to face Virgil and Amir, he was speechless, s
 
 *"(sigh)... it is a tad late for that, Sam."* - said Virgil with a hint of concern - *"I might need to ask you to go with him and face the trials now. I wished I had more time to prepare you for it but you gotta do what you gotta do; I'll wait at the exit of the cave..."*
 
-
-
 Sam mind absently moved his legs taking a few steps and stopped - *"... wait! aren't you coming?"*
 
 *"No"* - said Virgil dryly. Sam's piercing eyes drilled for answers without asking - *"... I am not allowed in such a sacred space... now go, before that fool gets in trouble"* - added Virgil
-
-
 
 Sam nodded and rushed in to look for his friend. Virgil observed how the shadows gradually engulfed his shape as he ventured deeper into the cave - *"... now, I just need to wait for my little fools to overcome the difficulties ahead."* - turning away from the entrance and walking away to increase the dramatical delivery of the moment, he slowed down and stopped a few steps away from where he was standing, stretched his hand and grabbed a piece of his pale grey linen garments, tearing a piece off and releasing it into the air.
 
